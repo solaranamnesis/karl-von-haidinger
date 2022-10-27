@@ -6,5 +6,5 @@ Public Domain Works of Wilhelm Karl Ritter von Haidinger (1795 - 1871)
 
 English - Plain Text  
 English - PDF  
-[French - Plain Text](/full-text-french.md)  
+[French - Plain Text](memoire-relations-filantes-bolides-meteorites/full-text-french.md)  
 French - PDF
