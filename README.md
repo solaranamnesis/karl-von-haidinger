@@ -8,3 +8,10 @@ English - Plain Text
 English - PDF  
 [French - Plain Text](memoire-relations-filantes-bolides-meteorites/full-text-french.md)  
 French - PDF
+
+## Rapport sur l'échantillon du météorite de Beauvechain, (Tirlemont, Tourinne-la-Grosse).
+
+English - Plain Text  
+English - PDF  
+[French - Plain Text](rapport-sur-lechantillon-du-meteorite-de-beauvechain/full-text-french.md)  
+French - PDF
