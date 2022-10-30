@@ -1,4 +1,4 @@
-# Physique du Globe: Mémoire sur les Relations qui Existent entre les Étoiles Filantes, les Bolides et les Essaims de Météorites.
+# Mémoire sur les Relations qui Existent entre les Étoiles Filantes, les Bolides et les Essaims de Météorites.
 
 ## Par M. Haidinger,
 
