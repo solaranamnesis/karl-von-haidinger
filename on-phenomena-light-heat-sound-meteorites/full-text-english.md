@@ -1,6 +1,6 @@
 # On the Phenomena of Light, Heat, and Sound accompanying the fall of Meteorites.
 
-## By W. Ritter v. Haidinger, For. Mem. R. S. &c. Received October 6, 1868.
+## By W. Ritter v. Haidinger, For. Mem. R. S. _etc._ Received October 6, 1868.
 
 A particular incident caused me to return to some portions of my earlier studies in regard to meteors and meteorites.
 
