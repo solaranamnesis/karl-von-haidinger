@@ -15,3 +15,10 @@ English - Plain Text
 English - PDF  
 [French - Plain Text](rapport-sur-lechantillon-du-meteorite-de-beauvechain/full-text-french.md)  
 French - PDF
+
+## On the Phenomena of Light, Heat, and Sound accompanying the fall of Meteorites.
+
+[English - Plain Text](on-phenomena-light-heat-sound-meteorites/full-text-english.md)  
+English - PDF  
+French - Plain Text  
+French - PDF  
