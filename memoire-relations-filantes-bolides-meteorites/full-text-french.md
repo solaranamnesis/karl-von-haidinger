@@ -4,7 +4,7 @@
 
 ### de Vienne, associé de l'Académie.
 
-Extrait des _Bulletins de l'Académie royale de Belgique, 2me série, tome 17, n° 2.
+Extrait des _Bulletins de l'Académie royale de Belgique_, 2me série, tome 17, n° 2.
 
 ### Bruxelles. 1864.
 
