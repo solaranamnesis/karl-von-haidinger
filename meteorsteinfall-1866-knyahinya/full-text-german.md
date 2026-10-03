@@ -4,47 +4,21 @@
 
 ---
 
+# [Erster Bericht.]()
+
+# [Zweiter Bericht.]()
+
 ---
 
 # Erster Bericht.
 
 (Mit 1 Tafel.)
 
-Mitten in den Bedrängnissen des Krieges, während süd- und 
-nordwärts in unseren Marken für Angriff und Vertheidigung des 
-heimischen Herdes die gewaltigsten Sehallerscheinungen und Ver- 
-sendung Tod und Verderben bringender Projectile uns umdrohnen, 
-geht uns die Nachricht über ein Ereigniß im Osten des Kaiserreiches 
-zu, das in wissenschaftlicher Beziehung es doch beanspruchen muß, 
-in unsern dem wahren ruhigen Fortschritt gewidmeten Blättern für 
-die Zukunft aufbewahrt zu werden. 
+Mitten in den Bedrängnissen des Krieges, während süd- und nordwärts in unseren Marken für Angriff und Vertheidigung des heimischen Herdes die gewaltigsten Schallerscheinungen und Versendung Tod und Verderben bringender Projectile uns umdröhnen, geht uns die Nachricht über ein Ereigniß im Osten des Kaiserreiches zu, das in wissenschaftlicher Beziehung es doch beanspruchen muß, in unsern dem wahren ruhigen Fortschritt gewidmeten Blättern für die Zukunft aufbewahrt zu werden.
 
-Ein Fall von meteorischen Projectilen fand am 9. Juni , Nach- 
-mittags zwischen 4 und 5 Uhr Statt. Ich erhielt die erste Nachricht 
-über denselben am 28., und zwar bin ich für diese freundliche Anzeige 
-Herrn Prof. Johann Kriesch am K. Josephs -Polytechuicum in Ofen 
-recht innigst zu Danke yerpflichtet. Schon hatte er auch die Möglich- 
-keit einer freundlichen Mittheilung eines Exemplares von den mehreren 
-gefallenen Steinen in Aussicht gestellt, mehrere Angaben verzeichnet, 
-und Herrn Franz Kistler, Ingenieur in Unghvär genannt, von wel- 
-chem ihm die Kunde zukam. Einer Mittheilung von Herrn Director 
-Dr. M. Hörn es nach, hatte das Fremdenblatt vom 2K. Juni eine kurze 
-Notiz gegeben, in welcher der Unghvärer Advocat Herr Lorenz Ricz- 
-ko als Besitzer mehrerer Bruchstücke des Meteors genannt wird. Unter 
-Datum des 3. Juni von Linz verdanke ich unserem hohen Ehrenmit- 
-gliede Seiner kaiserlichen Hoheit dem durchlauchtigsten 
-Herrn Erzherzog Stephan die Angabe, daß man erst nur einen 
-ziemlich großen Stein gefunden, da er aber vollständig, ganz überrin- 
-det war, und mehrere Personen doch den Eindruck gehabt, als ob sie 
-mehrere einzelne Gegenstände fallen gesehen, so wurde mehr gesucht, 
-und es fanden sich allerdings noch mehrere Stücke, die man 
+Ein Fall von meteorischen Projectilen fand am 9. Juni, Nachmittags zwischen 4 und 5 Uhr Statt. Ich erhielt die erste Nachricht über denselben am 28., und zwar bin ich für diese freundliche Anzeige Herrn Prof. Johann Kriesch am K. Josephs-Polytechnicum in Ofen recht innigst zu Danke verpflichtet. Schon hatte er auch die Möglichkeit einer freundlichen Mitteilung eines Exemplares von den mehreren gefallenen Steinen in Aussicht gestellt, mehrere Angaben verzeichnet, und Herrn Franz Kistler, Ingenieur in Unghvár genannt, von welchem ihm die Kunde zukam. Einer Mitteilung von Herrn Direktor Dr. M. Hörnes nach, hatte das Fremdenblatt vom 25. Juni eine kurze Notiz gegeben, in welcher der Unghvárer Advokat Herr Lorenz Riczko als Besitzer mehrerer Bruchstücke des Meteors genannt wird. Unter Datum des 3. Juni von Linz verdanke ich unserem hohen Ehrenmitgliede Seiner kaiserlichen Hoheit dem durchlauchtigsten Herrn Erzherzog Stephan die Angabe, daß man erst nur einen ziemlich großen Stein gefunden, da er aber vollständig, ganz überrindet war, und mehrere Personen doch den Eindruck gehabt, als ob sie mehrere einzelne Gegenstände fallen gesehen, so wurde mehr gesucht, und es fanden sich allerdings noch mehrere Stücke, die man "Bruchstücke" nannte. Auf eine Anfrage von mir erhielt ich sodann von Herrn Kistler eine umfassendere Skizze der Erscheinung, welche ich hier in erster Linie vorlege, und die sich bereits auf die Angaben bezieht, welche Herr Prof. Kriesch mitgeteilt hatte.
 
-„Bruchstücke*' nannte. Auf eine Anfrage von mir ethielt ich sodann 
-von Herrn Kistler eine umfassendere Skizze der Erscheinung, welche 
-ich hier in erster Linie rorlege, und die sich bereits auf die Angaben 
-bezieht, welche Herr Prof. Kriesch mitgetheflt hatte. 
-
-„Bezuglich Ihres Geehrten vom 30. Juni nehme ich mir die 
+"Bezuglich Ihres Geehrten vom 30. Juni nehme ich mir die 
 Freiheit noch einiges als Ergänzung zum Meteorsteinfalle anzuführen, 
 um so mehr als von Seite des Comitates und des Unghvarer Gymna- 
 siums am 2. Juli eine Commission bestimmt wurde, welche sich nach 
@@ -61,15 +35,15 @@ gefundenen Steine etwa unter 30 bis 38 Grad (zur Erdoberfläche
 geneigt) herabfielen. Die Anzahl der Steine dürfte eine sehr bedeutende 
 sein, indem bis jetzt etwa schon 60 Stück von verschiedenen Leuten 
 aufgefunden wurden. Der Streifen AB der Karte deutet die Richtung 
-an , in welcher sich die Rauchwolke nach dem Entstehen und nach 
-der Detonation wirbelnd fortbewegte , bis sie endlich in einer Ent*- 
-fernung von S bis 6 Meilen, immer mehr abnehmend , sich auflösend 
+an, in welcher sich die Rauchwolke nach dem Entstehen und nach 
+der Detonation wirbelnd fortbewegte, bis sie endlich in einer Ent*- 
+fernung von S bis 6 Meilen, immer mehr abnehmend, sich auflösend 
 verlor. Die intensivste Erscheinung bei Knyahinya h«rum war fol- 
 gende: Am 9. Juni Nachmittags um 4 bis 5 Uhr entstand ein 
 krachendes Getöse als würden zu beinahe gleicher Zeit hundert 
 Kanonen abgefeuert» und wer plötzlich in der Richtung des Schalles 
 nach dem Horizont sah, bemerkte ein Wölkchen scheinbar so groß 
-als etwa zehnmal die Sonne , in bedeutender Höhe. Das ganze Fir- 
+als etwa zehnmal die Sonne, in bedeutender Höhe. Das ganze Fir- 
 mament war wolkenlos. Gleich auf den Knall sah man aus dem 
 Wölkchen in allen Richtungen grauliche Rauchstrahlen geschleudert, 
 aber ferner keine Lichterscheinung. Zwei bis drei Minuten nach dem 
@@ -96,7 +70,7 @@ bei A zerplatzten Meteors zu entstammen.
 Den ausführlichen Bericht, sammt gerichtlich aufgezeichneten 
 Zeugen vom Oberarzt v. Sird und Prof. v. Duma, wird das Comitat 
 an die Ofner Statthalterei und an den Herrn Tavernicus Baron 
-S e n n y e y übersenden , von wo aus derselbe wohl veröffentlicht 
+S e n n y e y übersenden, von wo aus derselbe wohl veröffentlicht 
 werden dürfte. Desgleichen wurden von obiger Commission noch 
 eine Anzahl von 35 Stück Meteorsteinen eiiigesammelt, welche eben- 
 falls als Beilage eingesendet wurden. Im Laufe des Jahres dürften 
@@ -141,7 +115,7 @@ und welche ihm von Herrn Professor Friedrich Hazsiinszky in
 Eperies, also aus einer Entfernung von etwa 12 Meilen Luftlinie west- 
 lich vom Schauplatze der Erscheinung zugegangen war. 
 
-„Am 9. Juni, Nachmittag kurz vor & Uhr waren hier viele 
+"Am 9. Juni, Nachmittag kurz vor & Uhr waren hier viele 
 hundert Leute Zeugen einer glänzenden Lufterscheinung. Eine große 
 Feuerkugel in Form eines flammenden Besens, mit schwarzrothem 
 Stiel voran und flammendem Kopf flog in ostlicher Richtung über 
@@ -176,15 +150,15 @@ Hof-Mineraliencabinet freundlichst dargebrachte Stein als Grundlage
 zu einigen Betrachtungen gelten, welche es gewiß wichtig sein wird, 
 mit einer größeren Anzahl von Exemplaren zu vergleichen. 
 
-Er ist, wie man von Meteoriten zu sagen pflegt ein „Ganzer 
+Er ist, wie man von Meteoriten zu sagen pflegt ein "Ganzer 
 Stein**, nicht ein Bruchstück von einem solchen. Er ist ganz vollstän- 
 dig überrindet. Die Gestalt läßt sich beschreiben als eine unregel- 
-mäßige einfache vierseitige Pyramide , die ziemlich ebene Basis 
+mäßige einfache vierseitige Pyramide, die ziemlich ebene Basis 
 länglich 3 Zoll gegen 21/4 (80 gegen 60 Millim.), mit einer Höhe 
 von 2 Zoll (S4 Millim.). Auch die Seitenflächen halten ziemlich ihre 
 Ebene ein, und die Grate oder Kanten sind sehr bestimmt, und nur 
 ganz wenig hin und wieder abgerundet. Eine der Neigungen ist et^a 
-50** , also weit schärfer als die Kante eines Tetraeders. Gewiß ist 
+50**, also weit schärfer als die Kante eines Tetraeders. Gewiß ist 
 indessen doch das Ganze ein wahres Bruchstück, aber eben so gewiß 
 nicht ein solches, das aus einem Hauptkörper erst in unserer Atmos- 
 phäre gelegentlich der Detonation seine Bruchstückform angenommen 
@@ -208,11 +182,11 @@ zu ordnen sein wird. Die Eröffnung des Innern durch Entzwei-
 
 schneiden, Schleifen und Poliren, die chemische Analyse endlich, der 
 Metailtheile sowohl als der steinigen Masse wird fernere Verglei- 
-chungspunkte gewähren , wenn späterhin mehrere Exemplare in den 
+chungspunkte gewähren, wenn späterhin mehrere Exemplare in den 
 Kreis der Untersuchung gezogen werden. Das eigenthümliche Gewicht 
 des Exemplares fand ich bei 20** R. = 3-820. 
 
-Jedenfalls glaube ich , ist bei der heutigen Mittheilung , welche 
+Jedenfalls glaube ich, ist bei der heutigen Mittheilung, welche 
 doch noch sehr den Charakter einer bloß vorläufigen besitzt, so viel 
 gewonnen, daß der Fall von Knyahinya bei Berezna im Ungher-Comi- 
 tate in Ungarn am 9. Juni 1866 zu jenen zählt, in welchen ein ziem- 
@@ -300,7 +274,7 @@ zubringen, als es zuerst möglich gewesen war.
 Es liegt in der Natur der Sache, daß die ersten Nachrichten 
 nur allzu summarisch klingen. Es ist dies wohl auch durch den 
 Zustand unserer heutigen Tagespresse bedingt. Die Richtung der 
-Kenntnißnahme ist überhaupt mehr dem „Großen*', dem „Allgemei- 
+Kenntnißnahme ist überhaupt mehr dem "Großen*', dem "Allgemei- 
 nen** zugewendet! Während in der That nur die eigentliche, aus- 
 schließliche Beobachtung immer für alle späteren Betrachtungen die 
 Grundlage darbieten kann, liebt man es so sehr mit etwas mehr 
@@ -311,7 +285,7 @@ diejenigen Persönlichkeiten, welchen es gewöhnlich beschieden ist,
 dergleichen Erscheinungen zu beobachten, gar wenig für diese Ein- 
 drücke vorbereitet, aber doch bleibt das einfache Aufzeichnen der-, 
 selben immer dasjenige, was man namentlich in Schriften aufbewahren 
-sollte, welche wie unsere Sitzungsberichte , den Charakter des Blei- 
+sollte, welche wie unsere Sitzungsberichte, den Charakter des Blei- 
 benden bewahren. 
 
 Gs ist wahr, von manchen Meteorsteinfälien bringen namentlich 
@@ -320,14 +294,14 @@ Blätter dem Tage entsprechend in das Einzelne gehende Berichte.
 Für uns selbst bleibt immer der Bericht über den Meteorsteinfall von 
 Stannern am 22. Mai 1808 durch die Herren v. Schreibers und 
 V. Widmanstatten eine höchst werthvolle Erinnerung. Aber 
-selbst jetzt noch, eigentlich jetzt mehr als je , wo doch die Kenntniß 
-der ganzen Classe von Erscheinungen wächst , wird es immer wün- 
+selbst jetzt noch, eigentlich jetzt mehr als je, wo doch die Kenntniß 
+der ganzen Classe von Erscheinungen wächst, wird es immer wün- 
 achenswerther, neue» aber immer die unmittelbarsten Beobachtungen 
 aufzubewahren. 
 
 In dem an den Herrn Tavernicus abgestatteten Berichte sind 
 2war Augen«- und Ohrenzeugen namentlich aufgeführt, aber nicht 
-ihre individuellen Aussagen , sondern nur eine Gesammt-Angabe der 
+ihre individuellen Aussagen, sondern nur eine Gesammt-Angabe der 
 aufeinander folgenden Erscheinungen. Keiner der Genannten ist Ge- 
 währsmann für die eine oder die andere Thatsache, gewiß hat keiner 
 derselben irgend eine Angabe selbstständig zu Protokoll gegeben. 
@@ -360,7 +334,7 @@ graphische Meilen in gleicher NNO. -Richtung von der Comitats-
 Hauptstadt Unghvär im Unghvärer Comitat des Königreiches Ungarn. 
 
 Die ganze durch den Fall vom 9. Juni mit Meteorsteinen uber- 
-säete Gegend , welche auf Seite 6 und 7 im Grundrisse und land- 
+säete Gegend, welche auf Seite 6 und 7 im Grundrisse und land- 
 schaftlich vorliegt, gehört dem Karpathensandsteine an, in den 
 mannigfaltigsten Abänderungen. Auf drei Meilen nach allen Richtungen 
 um Knyahinya kein anderes Gestein. Herrn k. k. Bergrath, Dr. Franz 
@@ -370,22 +344,22 @@ Aufnahmen der k. k. geologischen Reichsanstalt die Gegend bereiste,
 verdanken wir die bezüglichen Berichterstattungen, eine vorläußge 
 in dem von mir für den 31. August 1858 zusammengestellten Berichte 
 (Jahrbuch d. k. k. G. R. A. IX. Bd. 1858. Verhandlungen. S. 115). 
-und sodann eingehender in seinem „Berichte über die geologische 
+und sodann eingehender in seinem "Berichte über die geologische 
 ilbersichtsaufnahme im nordöstlichen Ungarn im Sommer 1858*^ (Jahr- 
 buch der k. k. G. R. A. X. Bd. 1859. Seite 399). Namentlich wird 
 für d'e Gegend, welche in Fig. 2 (S. 7) den Vorgrund zu Knyahinya 
-bildet ein „gewöhnlicher Karpathensandstein'' genannt, „ganz ähnlich 
+bildet ein "gewöhnlicher Karpathensandstein'' genannt, "ganz ähnlich 
 wie man ihn etwa in^den Brüchen von Dornbach oder Sievering bei 
 Wien beobachtet.** 
 
 Mancherlei Varietäten von Sandstein werden beschrieben, unter 
-andern gegen Norden vorliegend, ein „festes Quarzconglomerat. 
+andern gegen Norden vorliegend, ein "festes Quarzconglomerat. 
 offenbar eine Fortsetzung des Zuges, der zu Zboj (nordwestlich von 
 Knyahinya) auf Mühlsteine gebrochen wird; es bildet mächtige 
 Bänke, die ebenfalls steil nördlich einfallen.*' (L. c. S. 425). Ohne 
 Zweifel gehören zu diesen der Sztyinszka-Felsen, so wie die Fels- 
-wände des Knyahinyicza-Berges. „Mühlstein-Conglomerat, wie eß im 
-Obigen mehrfach beschrieben wurde,** findet sich auch „am Javornik- 
+wände des Knyahinyicza-Berges. "Mühlstein-Conglomerat, wie eß im 
+Obigen mehrfach beschrieben wurde,** findet sich auch "am Javornik- 
 berge** (S. 426). 
 
 Zur genaueren Würdigung der von den Augen- und Ohren- 
@@ -393,7 +367,7 @@ zengen abgegebenen Aussagen, wird es nicht überflüssig sein zu
 bemerken, wie sich die verschiedenen Nationalitäten in der Umgegend 
 nach ihrer Anzahl verhalten. 
 
-In dem „Gemischten Stuhlrichter-Amte Berezna** (Nach dem 
+In dem "Gemischten Stuhlrichter-Amte Berezna** (Nach dem 
 Staatshandbuche des Jahres 1859) in einem Markte und 50 Dörfern, 
 wohnten 29,426 Menschen auf 25*10 Quad.'atmeilen (nahe 1 168 auf 
 einer Quadratmeile). Sie sind für den ganzen Bezirk wie folgt 
@@ -406,9 +380,9 @@ geographischen Karten mancherlei Verschiedenheiten der Schreibe-
 weise der Ortsnamen : So hat die Administrativkarte von Ungarn im 
 Vaaße von 1 : 288.000 oder 4000 Klafter = 1 Zoll, ohne Bergzeich- 
 nung MGroß-Berezna,** die in dem gleichen Maaße ausgeführte mit 
-Bergzeichnung von Zuccheri, nach Lipszky, „Nagy Berezna,'' 
+Bergzeichnung von Zuccheri, nach Lipszky, "Nagy Berezna,'' 
 die neue v. Sc hed ansehe Karte in dem Maaße von 1:S76*000 
-ebenfalls mit Bergzeichnung, hat „Welka Berezna.*" Ich habe ge- 
+ebenfalls mit Bergzeichnung, hat "Welka Berezna.*" Ich habe ge- 
 glaubt, die magyarische Orthographie befolgen zu müssen, weil die 
 Tagespresse sowohl als die schriftlichen Mittheilungen, welche mir 
 zukamen, sich derselben bedienten, und ich bleibe dadurch auch 
@@ -457,7 +431,7 @@ D Beiläufige Stelle der grösseren aufgefundenen Stücke. Ziffern, Gewicht
 in Pfunden, 
 D ? Problematische Stelle am Hügel Uorbek, 
 Darstellung der Oberfläche. Sie erläutern sich gegenseitig. In Bezug 
-auf Fig. 2 muß ich bemerken , daß die entfernteren Umrisse genau 
+auf Fig. 2 muß ich bemerken, daß die entfernteren Umrisse genau 
 der freundlichst eingesandten Skizze entsprechen, daß aber der Yor^ 
 grund mehr nur als Andeutung der Lage gelten kann, da er doch im 
 Originale nur mit wenigen Strichen vorlag. 
@@ -480,7 +454,7 @@ nördlichen Bergzuges, welcher mit dem Sxtginskaf eisen zusammenhängt.
 
 Bei drückender Hitze hatte ich in der Zeit von 3 bis nach 4'/, 
 Uhr den Abschluß meiner Obliegenheit in der Bezeichnung der Holz- 
-Klaftern begonnen , als ich und die umstehenden Waldaufseher und 
+Klaftern begonnen, als ich und die umstehenden Waldaufseher und 
 Handlanger einen scharfen weithintönenden Knall horten und noch 
 zwei darauiTolgende immer schwächere, die meiner Ansicht nach 
 aber blos. das in den Bergen wiedertönende Echo des ersten waren. 
@@ -500,12 +474,12 @@ gegen SSW. hatte und unter einem Winkel von etwa 30 Grad auf
 die Horizontale stand. *< 
 
 Nach den freundlichst' mitgetheilten Skizzen Fig. 3 und Fig. 4, 
-glaube ich dies so verstehen zu sollen , daß Fig. 3 die Ansicht im 
+glaube ich dies so verstehen zu sollen, daß Fig. 3 die Ansicht im 
 (theoretischen) Grundrisse gibt, während Fig. 4 die Erscheinung 
 auf die Beobachtungsebene projicirt, und also den Höheuwinkel an- 
 schaulich zu machen bestimmt ist. 
 
-„Nach Verlauf von «/^ einer Minute fing es an 
+"Nach Verlauf von «/^ einer Minute fing es an 
 in der Wolke wie m einem Dampfkessel zu kochen 
 und zu brausen, das sich in ein Rollen gleich einem 
 schweren Donner auflöste, schwach, stärker und 
@@ -536,7 +510,7 @@ Herr k. k. Waldbereiter A. Pokorny sandte folgende Aus-
 sagen, freundlichst aufgesammelt, namentlich um einige bis dahin 
 unsicher bestimmte Fragen beantwortet zu erhalten. 
 
-1. „Beobachtungen des Knyahinyaer Regalien- 
+1. "Beobachtungen des Knyahinyaer Regalien- 
 Pächters Ignaz Feuermann über das am 9. Juni zwischen 4 
 und 5 Uhr in Knyahinya vorgefallene Naturereigniß. 
 
@@ -613,11 +587,11 @@ k. k. Waldaufseher.
 Grundbesitzers in Sztricsava über das Naturereigniß von Sztri<* 
 csava aus. 
 
-„Ich habe an diesem Tage auf dem Felde meine Ochsen gewei- 
+"Ich habe an diesem Tage auf dem Felde meine Ochsen gewei- 
 det, als plötzlich am Firmamente ein starker Knall hörbar war, und 
 vor meinen Augen auf zwei Schritt Entfernung ein schwarzer Stein 
 mit einem Blitzen zur Erde niederfiel, worüber ich sehr .stark er- 
-schrocken , aber nach einer Weile mich wieder erholte, und diesen 
+schrocken, aber nach einer Weile mich wieder erholte, und diesen 
 herabgefallenen Gegenstand besichtigte, der nun wie gesagt, der 
 obige Stein war, den ich aufgehoben, und der erhitzt war als wenn 
 man ihn aus einem geheizten Ofen herausgenommen hätte. Das 
@@ -652,7 +626,7 @@ In unserer Gegenwart : +Kurtyak Mihaylo.
 
 Johann Pro kul m/p. Namens fertiger 
 
-k. k. FinanscoDeipiat N e g e d 1 0 m/p, , 
+k. k. FinanscoDeipiat N e g e d 1 0 m/p,, 
 
 Pokorny m/p., Waldaufseher. 
 
@@ -666,12 +640,12 @@ Am 9. Juni 1866 war ich aus Anlaß amtlicher Dienstverrich-
 tungen in Nagy Berezna anwesend. Ich stasd zwischen 4 und 5 Uhr 
 mit dem k. k. Steueramtsassistenten Brattusiewicz im Hofe der 
 k. L Waldbereiters-Wohnung, in welchem Gebäude auch das k. k. 
-Steueramt untergebracht ist, unmittelbar vor dem letzteren , im Ge- 
+Steueramt untergebracht ist, unmittelbar vor dem letzteren, im Ge- 
 spräch begriffen. Unweit davon stand der Amtsdiener Weigel. Da 
 auf einmal, ungefähr einige Minuten vor 5 Uhr, ohne daß man bei 
 so heiterem Himmel ein Gewitter, oder sonst eine Erscheinung ver- 
 muthet hätte, ertönte am Horizonte ein dumpfer Knall, ganz ähnlieh 
-dem eines starken Kanonenschusses , dem unmittelbar zwei gleiche, 
+dem eines starken Kanonenschusses, dem unmittelbar zwei gleiche, 
 jedoch etwas mattere folgten, und welche in ein donnerähnliches, 
 jedoch nicht dumpfes Donnern, sondern rollendes Getöse über- 
 gingen, welches sich wieder in ein mit Schwattern verbundenes 
@@ -680,7 +654,7 @@ Getöse auflöste, beinahe ähnlich dem Geräusche, wenn man aus
 
 486 . V. Htidiiiger. 
 
-einem Locomotive Dampf von unten ausläßt , und dieses mit einem 
+einem Locomotive Dampf von unten ausläßt, und dieses mit einem 
 Schwattern ähnlieh dem, welches sich beim starken Kochen von 
 Wäsche- oder Pflaumenmus u. dgl. in einem Kessel ergibt, ver- 
 bunden wäre. 
@@ -708,7 +682,7 @@ Bezirks-Directipn in Uiighvnr.
 kais. königl. Steueramts-Assistenten zu Nugy Berezna, von Nagy 
 Berezna aus. 
 
-„Himmel rein, wolkenlos, kein leises Lüftchen, nur gegen Süden 
+"Himmel rein, wolkenlos, kein leises Lüftchen, nur gegen Süden 
 am Horizonte kleine Wolkenschichten, die sich gerade gegen Westen 
 hinzogen. 
 
@@ -720,7 +694,7 @@ erzitterte die Gegend durch einen auffallenden donnerähnlichen
 Schall, gleich dem Knalle eines abgeschossenen schweren Geschützes 
 mit wiedergegebenem Echo. "< Das Waldbereiter-Amtsgebäude (indem 
 die Herren standen) liegt im Mittelpunkt des Ortes Nagy Berezna mit 
-nördlicher Front. Worauf „ich durch den Schall noch mehr aufmerk- 
+nördlicher Front. Worauf "ich durch den Schall noch mehr aufmerk- 
 sam gemacht, meinen Blick nach aufwärts wandte und das Phänomen 
 aufmerksam verfolgte. Aus der kleinen Wolke hatte sich offenbar der 
 
@@ -754,7 +728,7 @@ Herren, und bemerkte von da aus eine längliche Wolke, welche weiß
 mit dunkeln Flecken war, als plötzlich ein donmerähnlicher Krach 
 gleich dem Schusse aus einem schweren Geschütze die Gegend 
 erzittern machte, gleichzeitig dem durch das Echo wiedergegebenen 
-Schalle leuchtete es röthlich auf, und kleine mindere „Kracher*' ent- 
+Schalle leuchtete es röthlich auf, und kleine mindere "Kracher*' ent- 
 luden sich aus der Wolke, welche Knalle ein Getöse veranlaßten 
 gleich dem Sieden des Wassers oder auch Zusammenschlagen v^n 
 Steinen; gleichzeitig sah man kleine Rauchstreifen, mitunter auch 
@@ -793,9 +767,9 @@ Sterten Wege in Eile vor den Fenstern vorbeigefahren wären**.
 
 Zu besonderem Danke bin ich Herrn k. k. Waldaufseher Wenzel 
 Negedlo verpflichtet, für eine ansehnliche Reihe von Aussagen 
-von Personen aus 0' Sztusicsa (NO. von K.) , Knyahinya, Sztricsava 
+von Personen aus 0' Sztusicsa (NO. von K.), Knyahinya, Sztricsava 
 (SW. von K.), Domasina (SO. von K.) und Ulics (W. v. K.). welche 
-derselbe aus freiem Antriebe aufgesammelt , und in der Gestalt von 
+derselbe aus freiem Antriebe aufgesammelt, und in der Gestalt von 
 Protokollen verzeichnet hatte. 
 
 Ihrer größeren Anzahl wegen glaube ich, dieselben hier nicht in 
@@ -808,7 +782,7 @@ vorzufuhren, und den etwa eigenthümlichen Angaben Rechnung zu
 tragen. Manche der letzteren haben gewiß für die Beurtheilung als 
 individuelle Angaben nicht wenig Werth, wogegen man denselben 
 einen solchen nicht zugestehen dürfte, wenn man dieselben unter der 
-Autorität von „Man** „man hat beobachtet u. s. w." gewissermaßen 
+Autorität von "Man** "man hat beobachtet u. s. w." gewissermaßen 
 als eine bereits controllirte und bewiesene Thatsache aufnähme. Sie 
 sind eben Darlegungen von Erscheinungen je nach dem Standpunkte, 
 der Sinnenschärfe und Aufmerksamkeit des Beobachters. 
@@ -841,7 +815,7 @@ vierten Tage wurden drei derselben gefunden, jeder über ein Pfund
 schwer. Den vierten fand man nicht. 
 
 S. Aus Sztricsava. Kopinka Jurko. Ist SO Jahre alt, ver- 
-heiratet, Vater von vier Kindern , ein Achtel Ansässigkeit. Der Fels 
+heiratet, Vater von vier Kindern, ein Achtel Ansässigkeit. Der Fels 
 Sztyinszka ist etwa 1000 Klafter lang; an denselben schließt sich 
 gegen Sonnenaufgang eine 4 bis 5 Joch große Wiese «May- 
 kovay** und noch eine Viertelstunde jenseits derselben die Wiese 
@@ -912,7 +886,7 @@ ihn, und warfen die Stücke umher. Später wurden diese von Israeliten
 aufgesammelt und weggebracht. 
 
 9. Zar Jurko, Mateyka Mihaylo, Karaman Jurko Grund- 
-wirthe. Diese öfters Genannten bestätigen , daß die Bewohner sehr 
+wirthe. Diese öfters Genannten bestätigen, daß die Bewohner sehr 
 erschreckt waren, und sich fürchteten, die Steine sogleich zu berühren, 
 was erst nach 2 bis 3 Stunden geschah. Man nannte sie Hagelsteine, 
 
@@ -938,8 +912,8 @@ muß, Ton welchem man sich kaum einen Begriff machen kann.
 
 11. Aus Knyahinya. Kai in Ivan. Derselbe ist 44 Jahre 
 alt, verheiratet, Vater von drei Kindern. Hörte den Schall, wie von 
-einer Kanone , wie von oberhalb des Felsens Sztyinszka. Ein langer 
-Strahl von grauem Rauche zog sich gegen Westen , verschwand in 
+einer Kanone, wie von oberhalb des Felsens Sztyinszka. Ein langer 
+Strahl von grauem Rauche zog sich gegen Westen, verschwand in 
 einer Viertelstunde. 
 
 12. AusdemZemplinerComitate, UlicserGemeinde. 
@@ -952,7 +926,7 @@ war deutlich roth, eine kleine graue Wolke blieb zurück im Nordost
 und verschwand nach einer Viertelstunde gänzlich. Die Leute ge- 
 brauchten für die Bewegung den Ausdruck: der rothe Strom habe 
 sich wie eine Peitsche fortgezogen. Auch hörten sie in der Richtung 
-oberhalb Sztricsava Rollen, auch höhere und tiefere Töne, „mit feinem 
+oberhalb Sztricsava Rollen, auch höhere und tiefere Töne, "mit feinem 
 und tiefstimmigem Tone**. Auch war noch Sokolicsak Ivan aus der 
 Gemeinde Ticha, Unghv^rer Comitat als Zeuge bei der Aufnahme des 
 Herrn W. Negedlo am 30. August gegenwärtig. 
@@ -985,18 +959,18 @@ nämlich im Forstdienste dort mit einer Anzahl von Aufsehern und
 Arbeitern im Ganzen 7—8 Personen gegenwärtig. Der Schall wird 
 von Herrn Negedlo verglichen mit dem Knall einer Sechspfünder- 
 Kanone. Er unterschied einen ersten kleinen und unmittelbar darauf 
-den großen starken Knall , worauf alsbald ein tiefstimmiges Kollern 
+den großen starken Knall, worauf alsbald ein tiefstimmiges Kollern 
 begann, welches gegen zehn Minuten von NO. gegen W. zog, aber 
 bis zum Ende gut hor^nr blieb. Plötzlich rief einer der Leute: Herr, 
 sehen Sie die Wolke? Alles betrachtete nun die nordöstliche 
-Himmelsgegend, in welcher die Wolke in der Größe „eines Faßes** 
+Himmelsgegend, in welcher die Wolke in der Größe "eines Faßes** 
 sichtbar war, und zwar von blaulichgruner Farbe. Nach ein Paar 
 Minuten hatte sich die Wolke auseinandergezogen, nach einer 
 Viertelstunde war der Himmel wieder rein und klar' wie zuvor. 
 
 Sogleich nach dem Schlage hatte Herr Negedlo den Herrn 
 Forstcandidaten A. Pukäts ersucht, die Taschenuhr zu vergleichen, 
-und dieser antwortete: „Es fehlen noch 4 Minuten von S Uhr". 
+und dieser antwortete: "Es fehlen noch 4 Minuten von S Uhr". 
 
 Herr Negedlo war wenige Tage darnach von Herrn k. k. 
 Waldbereiter A. Pokorny nach Knyahinya und Sztricsava gesandt 
@@ -1039,7 +1013,7 @@ schwer, vier Zoll tief in die Ackererde eingedrungen war, die anderen
 aber ganz oberflächlich auf Ackerfeld lagen. Selbst 1- bis 2pfündige 
 Steine fand man auf der Oberfläche liegen, da der Grund durch lange 
 anhaltende Dürre sehr fest war. Ein 73 «/^ Pfund schwerer Stein 
-war nur zwei Fuß tief eingedrungen , auf nur 100 Schritt (40 Klaf- 
+war nur zwei Fuß tief eingedrungen, auf nur 100 Schritt (40 Klaf- 
 ter) Entfernung von dem größten bisher aufgefundenen Steine von 
 einem Gewichte von 550 Pfund. In Bezug auf diesen schließe ich hier 
 am zweckmäßigsten den Bericht über die von Herrn k. k. Forstcan- 
@@ -1082,16 +1056,16 @@ Felsen in dem weiteren Verlaufe desselben an.
 
 Es ließ sich wohl vermuthen, daß diese Grube 
 durch einen größeren Meteorstein verursacht wor- 
-den sei. „Von Herrn Waldbereiter ausgesendet, 
+den sei. "Von Herrn Waldbereiter ausgesendet, 
 «sagt Herr Pukäts,** machte ich mich eines Tages 
 um 3 Uhr Früh auf, um den Stein zu heben. Beim 
 ^ Anlangen auf der Wiese erblickte ich ein etwa 4 Fuß 
 breites und ^^j^ Fuß tiefes Loch mit aufgeworfenen, 
-^ umgestülpten Rändern , wie bei einem durch einen 
+^ umgestülpten Rändern, wie bei einem durch einen 
 elektrischen Funken durchgeschlagenen Karten- 
 blatte. Rasenstücke lagen bis dreißig Klafter vom 
 Loch entfernt umhei^eschleudert. Ohne Zweifel 
-ag dort ein Stein , aber wie tief? Mit nur sehr wenig Werkzeugen 
+ag dort ein Stein, aber wie tief? Mit nur sehr wenig Werkzeugen 
 suchte ich zuerst durch Einschlagen eines Pflockes die Tiefe zu 
 ergründen. Nach dem ersten Einschlagen ließ ich um den Pflock 
 
@@ -1118,7 +1092,7 @@ dem Boden, und war in zwei Theile zerspalten. Da jeder Theil mehr
 als dritthalb Centner wiegt, so gelang es nur mit großer Anstrengung 
 und mit eingelegten Treppenvorrichtungen, da nur Ein Mann mit 
 voller Gewalt angreifen konnte, ** und endlich Herr Pukits selbst 
-Hand anlegte „dieselben herauszuwälzen. Der Grund ; auf dem der 
+Hand anlegte "dieselben herauszuwälzen. Der Grund ; auf dem der 
 Stein lag, war steinhart zusammengedrückt.** 
 
 
@@ -1147,7 +1121,7 @@ Temperatur der Steine möglichst gleich nach dem Herabfallen. Eine
 der Mittheilungen ist zu charakteristisch in mehrerer Beziehung als 
 daß ich sie nicht hier vorlegen sollte. 
 
-1. „Mochnaly Jurko**, fragt Herr Puk&ts, sagt mir, „habt 
+1. "Mochnaly Jurko**, fragt Herr Puk&ts, sagt mir, "habt 
 Ihr gesehen wie nach dem Knalle ein Stein gefallen ist?** 
 
 A ntw. Wir waren, guter Herr, damals viele dabei zugegen. Als 
@@ -1177,7 +1151,7 @@ Weltuntergang erwarteten*'. Das ist einfach eine Fabel. Ich habe in
 einem Schreiben an den Regalienpaehter Ignaz Feuermann, 
 welches auch Herrn k. k. Waldbereiter Pokorny vorgelegt worden 
 ist, die unmittelbare Frage gestellt, ob auch nur Ein Beispiel eines 
-solchen „zu Boden Sturzens** namentlich aufgeführt werden könne, 
+solchen "zu Boden Sturzens** namentlich aufgeführt werden könne, 
 und es ist mir eine solche Thatsache nicht bestätigt worden. Wozu 
 aber Berichte über wahre wunderrolle Naturerscheinungen mit 
 Fabeln ausschmucken wollen!? 
@@ -1207,7 +1181,7 @@ einen Feuerstreifen gesehen.
 
 8. Terihellang; der gfefalleneB Steine aif der •berllcke. 
 
-Es schließt sich hier wohl am besten an , der Nachweisung zu 
+Es schließt sich hier wohl am besten an, der Nachweisung zu 
 gedenken über die Lage der größeren der in der Umgebung gefun- 
 denen Steine, theils nach den Angaben des Herrn Pukäts, theils 
 und vorzüglich nach dem Plane des Herrn Negedlo. Aus dem 
@@ -1242,7 +1216,7 @@ Mittheilungen der Herren Pokorny, Pukäts und Negedlo
 vorlegte. 
 
 Die Angabe, daß die entstandene Wolke die Größe eines Men- 
-schen hatte , dann daß sie acht Klafter lang und vier Klafter breit 
+schen hatte, dann daß sie acht Klafter lang und vier Klafter breit 
 gewesen sei, kann wohl nicht einer Größenschätzung zu Grunde 
 gelegt werden. 
 
@@ -1265,7 +1239,7 @@ Besitzer die Herrn Gefunden von Gewicht
 Pfarrer Joseph Gerzanics, Baran Jurko, Knyahinya, 2 Pfd. 
 Anton Pokorny, Feuermann Ignaz, Knyah., B«/, ^ 
 
-Dr. Lorenz Riczko, Unghvär, Magd des Feuermann, 17 „ 
+Dr. Lorenz Riczko, Unghvär, Magd des Feuermann, 17 " 
 
 
 498 ▼. H a i d i n g e r. 
@@ -1279,39 +1253,39 @@ bericht beigelegt ^Vi »
 
 8 Stucke, theils von Herrn Dr. v. Zsiro erworben, theils 
 
-dem Bericht beigelegt 1 % „ 
+dem Bericht beigelegt 1 % " 
 
 1 Stück Dr. L. Riczko, Unghvär ohne Gewichtsangabe, i) 
 
-1 „ Ingenieur Coloman Toth 4 „ 
+1 " Ingenieur Coloman Toth 4 " 
 
 4 Stücke Ingenieur Karl Wiedmann, 6«/,, 2, 1«/«. 1 Pfd. 
 
-Unghvär 11 „ 
+Unghvär 11 " 
 
 1 Stück Apotheker Ludwig Bene, Unghvär Vz >• 
 
-1 „ A. Pukäts, N. B «A „ 
+1 " A. Pukäts, N. B «A " 
 
-12 Stücke W. Negedlo, 12 St. N. B. zusammen . . . . S „ 
+12 Stücke W. Negedlo, 12 St. N. B. zusammen . . . . S " 
 
-1 Stück Director Riedel , Remote Va » 
+1 Stück Director Riedel, Remote Va » 
 
-6 Stücke A. Pokorny, die 6 Stücke zusammen . . . .13% „ 
+6 Stücke A. Pokorny, die 6 Stücke zusammen . . . .13% " 
 
 1 Stück von 7</2 Pfund hatte Herr Pokorny an das k. k. 
 
-Finanz-Ministerium nach Wien gesandt 7^/« „ 
+Finanz-Ministerium nach Wien gesandt 7^/« " 
 
 2 Stücke Prof. Hazsiinszky 1 Pfd., Hollender 27 Lth. Eperies 1 s/4 Pfd. 
-2 „ Ingen. F. Kistler Unghvär, 1 St. 12 Lth., 1 St. 
+2 " Ingen. F. Kistler Unghvär, 1 St. 12 Lth., 1 St. 
 
 13 Lth. und noch mehrere >} 1 « 
 
-27 „ Herr Prof. Alexander Duma sammelte vom 
+27 " Herr Prof. Alexander Duma sammelte vom 
 Volke 27 Stück, an die Ung. Akad. in Pest 
 
-gesandt zusammen 28 „ 
+gesandt zusammen 28 " 
 
 72 Stücke lOOV, PW. 
 
@@ -1343,11 +1317,11 @@ W. Negedlo, folgende Ziffern:
 
 1 Stück 880 Pfd. 
 
-1 „ mit je 73 y„ 30, 17, 14, 6 Pfd. zusammen 140 V, „ 
+1 " mit je 73 y" 30, 17, 14, 6 Pfd. zusammen 140 V, " 
 
-20 „ zwischen 4 und 2 Pfd . 60 
+20 " zwischen 4 und 2 Pfd . 60 
 
-kleinere an die 100 „ 
+kleinere an die 100 " 
 
 880«/, Pfd. 
 
@@ -1369,7 +1343,7 @@ je ein Exemplar zu 24 Pfd. 16 Lth., 18 Pfd. 21% Lth.. 9 Pfd.
 
 Das größte Stück ist halb von Bruchflachen begrenzt, die 
 übrigen sind sämmtlich ursprünglich vollständig umrindete, sogenannte 
-nganze Steine** , aber keiner davon ohne zahlreiche Beschädigungen 
+nganze Steine**, aber keiner davon ohne zahlreiche Beschädigungen 
 durch abgesprengte Splitter, an den Kanten sowohl, als auch stellen- 
 weise auf den Seitenflächen. 
 
@@ -1391,9 +1365,9 @@ SOO ▼. Haidinger.
 Die Steine fielen alle einzeln herab. Es war nicht das Ganze 
 Ein Stein» der etwa zersprang, und durch das Zerspringen Veran- 
 lassung zu der Knallerscheinung gab, sondern jeder der Steine fiel 
-einzeln. Vor dem Eintritte in den Raum der Atmosphäre , waren sie 
+einzeln. Vor dem Eintritte in den Raum der Atmosphäre, waren sie 
 freilich dicht auf einen Klumpen geschlossen, aber hier fanden sie 
-Widerstand, das Kleine mehr als das Große , so wurden sie von ein- 
+Widerstand, das Kleine mehr als das Große, so wurden sie von ein- 
 ander getrennt. Zu allererst blieb das staubförmige als Nebelwolken- 
 spur zurück. Jeder einzelne Stein von denen, welche herabfielen und 
 aufgefunden wurden ist mit seiner Rinde rundum bekleidet, von den 
@@ -1411,13 +1385,13 @@ Gestalt eine rotirende Bewegung annehmen, deren Axe die Richtung
 des Falles ist. Unter den Stücken, welche ich Herrn Negedlo ver- 
 danke, befindet sich eines von nur 2% Loth, welches dennoch als 
 
-Beweis dienen kann , daß es seinen gan- 
+Beweis dienen kann, daß es seinen gan- 
 ^* ' zen Weg vollständig unbeirrt und unab- 
 
 hängig durchgeführt. Es muß um die Axe 
 /^ CC rotirthaben, Cimmer voran imRaume. 
 Die Kanten von A bis B herum sind die 
-schäi'fsten, die Linien AÄ , Bti' gehen 
+schäi'fsten, die Linien AÄ, Bti' gehen 
 , durch den Schwerpunkt der voran im 
 Räume sich bewegen muß. Der Quer- 
 schnitt senkrecht auf CC ist scharf drei- 
@@ -1444,7 +1418,7 @@ k. k. Hof-Mineraliencabinet sind Orientirungsspuren yorhanden.
 Merkwürdig aber vor allen anderen Stücken ist das gewaltige 
 yon dem Gewichte, wie es sich jetzt zeigt yon nahezu sechs Cent- 
 ner, welches yon Herrn Puk&ts ausgegraben wurde, worüber 
-er einen so anziehenden , lehrreichen Bericht erstattete. 
+er einen so anziehenden, lehrreichen Bericht erstattete. 
 
 Das Stück ist nun, aus vier Bruchstücken bestehend, im 
 k. k. Hof-Mineraliencabinete zusammengestellt, Herr Director Dr. M. 
@@ -1452,7 +1426,7 @@ Hörn es hatte in der heutigen Sitzung Abbildungen desselben zur
 Ansicht vorgelegt, sowohl in natürlicher Größe, als auch auf Ein 
 Drittel derselben verkleinert, so wie sie dem gegenwärtigen Berichte, 
 der Aufstellung entsprechend, in Taf. I von der Vorderseite, und in 
-Taf. n von der Rückseite , beigelegt sind: 
+Taf. n von der Rückseite, beigelegt sind: 
 
 Folgende Maaßen wurden abgenommen: Länge 2 Fuß 4^4 Zoll, 
 Breite 1 Fuß 4 Zoll, Dicke 1 Fuß 6 Zoll. 
@@ -1466,11 +1440,11 @@ ZoU-PfuDd Kilogrammen
 
 der Vorder-Ansicht . . . . 283 Pfd. 20 Lth. 141-833 
 
-2. Kleineres Stück, linke Seite . 271 „ K „ 138-683 
+2. Kleineres Stück, linke Seite . 271 " K " 138-683 
 
 3. Ein kleines losgebrochenes 
 
-Stück 4 „ 21 „ 2-3S0 
+Stück 4 " 21 " 2-3S0 
 
 889 Pfd. 16Lth. 279-766 
 
@@ -1495,7 +1469,7 @@ der beiden großen Steine anschließt. Das gefundene Gesammtgewicht
 ist demnach 586 Pfd. 29 Lth., 293K482. 
 
 An der Trennung der größeren Stucke ist leicht ersichtlich, daß 
-viele Splitter abgesprengt wurden , welche nun fehlen. Auch fand in 
+viele Splitter abgesprengt wurden, welche nun fehlen. Auch fand in 
 der That, (s. Seite 495), Herr Negedlo noch vier größere Splitter, 
 jeden über EinPfund schwer und einen bis anderthalb Pfund schweren 
 Stein in der Ausgrabung, so daß das Gewicht des Ganzen sehr nahe 
@@ -1512,7 +1486,7 @@ zuerst Herrn Pukäts verrieth, und das auch in seiner Skizze
 (Fig. 6) gezeichnet ist. Nach dieser Abtrennung war für einen 
 Augenblick die Spannung in der Längenrichtung des Steines ver- 
 mindert, und die Spaltung des Steines fand Statt. Hier am Ende der 
-Bewegung erst kann sie stattgefunden haben , und zwar auf Grund- 
+Bewegung erst kann sie stattgefunden haben, und zwar auf Grund- 
 lage einer Rotationsbewegung, wie ähnliches Zerspringen mehrfach 
 an Mühlsteinen im Gange vorgekommen ist. Man muß annehmen, 
 daß der Meteorstein im strengsten Sinne des Wortes sich in den 
@@ -1588,11 +1562,11 @@ Fig. 10 Vorderseite.
 o04 T. H • i d i D g e r. 
 
 Der Stein ist im Ganzen überrindet, die Sehmelzg^Gbchen 
-ziemlich flach , übersteigen im Durchmesser einen halben Zoll nicht, 
+ziemlich flach, übersteigen im Durchmesser einen halben Zoll nicht, 
 doch schließen oft mehrere in wenig abweichender Lage in Gruppen 
 aneinander, den früheren Begrenzungen des Steines entsprechend. 
 Nur ganz wenige dringen hin und wieder etwas tiefer ein. Keine 
-Spur von Rinde yerräth sich auf den Bruchflächen , weder zwischen 
+Spur von Rinde yerräth sich auf den Bruchflächen, weder zwischen 
 den beiden nahe gleich großen Hauptbruchstücken, noch auch zwischen 
 dem einen derselben und dem 27-Pfundstücke. Letzteres reicht mit 
 einem flach vorspringenden Theile in einen etwas vertieften des anlie- 
@@ -1609,7 +1583,7 @@ in Besitz genommen worden ist. Und selbst die beiden Bruchstücke
 Der Stein von Ensisheim (7. Nov. 1492) hatte allerdings ein Gewicht 
 von 270 Pfund (127-270 K.), aber der größte noch übrige Rest, in 
 der Kirche daselbst aufbewahrt, soll nur mehr 40 — SO Kilogr. wiegen 
-(B u c h n e r, Meteoriten in Sammlungen S. 1 , 70 Pfund nach Benzen- 
+(B u c h n e r, Meteoriten in Sammlungen S. 1, 70 Pfund nach Benzen- 
 berg, 100 Pfund nach Chi adni (Über Feuer-Meteore S. 206). Alle 
 anderen sind kleiner, Juvinas (15. Juni 1821), HO Kilogr., davon 42 
 Kilogr. im Mus^e d'histoire naturelle in Paris, New Concord (1. Mai 
@@ -1640,7 +1614,7 @@ mals so sehr auf ihren eigenen Grund und Boden gespannt gewesen,
 als jetzt nach dem Meteoritcnfalle. Man fand jetzt Schlackenstücke, und 
 glaubte auch diese vom Himmel gefallen, aber an St'ücken, welche 
 mir sowohl HeiT Po körn y als auch Herr Negedio einsandten, 
-bemerkte man , daß sie keinen Zusammenhang mit der Bildung der 
+bemerkte man, daß sie keinen Zusammenhang mit der Bildung der 
 Schmelzrinde der Meteoriten haben konnten, sondern daß es einfache 
 Schlacken waren, einige im Wasser geschiebeartig abgerollt, andere 
 im Innern Holzkohlenstücke enthaltend, die untrüglichsten Beweise 
@@ -1667,10 +1641,10 @@ gesehen worden, als eine rothglühend feurige Kugel, von der Größe
 wie Zweidrittel der Mondscheibe, nach sich einen Rauchstreifen hin- 
 terlassend, der sich binnen fünf Minuten allmälig verlor. 
 
-In einem Diagramm, Fig. 1 1 , nach den Weltgegenden orientirt 
+In einem Diagramm, Fig. 1 1, nach den Weltgegenden orientirt 
 und hier auf die genaue geographische Lage von Knyahinya bezogen, 
 gab Herr Kistler freundlichst auch graphisch die Richtung des Falles, 
-aus etwa 50 Grad Höhe bis zu einiger Entfernung von der Erde , die 
+aus etwa 50 Grad Höhe bis zu einiger Entfernung von der Erde, die 
 in der Zeichnung ungefShr auf die Höhe von 10 Grad fallt. 
 
 
@@ -1699,7 +1673,7 @@ bis 1-58 Meilen von
 der Erde Endpunkt 
 für den sichtbaren 
 Lauf des Meteors 
-entsprechen , und 
+entsprechen, und 
 es ist dadurch für 
 Eine Richtung ein 
 Anhaltspunkt geboten. 
@@ -1746,7 +1720,7 @@ vielfältig sich dargeboten hat. Man nahm an, es seien sehr viele Kugeln
 gefallen, die man aber nicht finden kann, und was sich schon in der 
 ersten Mittheilung vom 12. Juli angedeutet fand, daß diese Kugeln 
 von Knyahinya aus ausgestreut worden sein. Ja ein Bericht der mir 
-vorlag behauptet sogar „wenn es wahr ist, daß in mehreren Comi- 
+vorlag behauptet sogar "wenn es wahr ist, daß in mehreren Comi- 
 taten %u derselben Zeit Meteoriten fielen, wie im Zempliner Comitat 
 zu Hegyi, Eperies, Rakamaz so muß dies vor der großen Explosion 
 statt gefunden haben. ** 
@@ -1765,7 +1739,7 @@ Schlüssen dienen kennen.
 Bereits unter dem 19. Juni hatte Herr Baron Ludwig v. F i s c h e r, 
 k. k. Rittmeister in der Armee und Gutsbesitzer, an Herrn k. k. Mini- 
 sterialrath Freiherm v. Hingen au, damals noch in Pribram, Nach- 
-richt über die Erscheinung gegeben , eine Mittheilung welche Herr 
+richt über die Erscheinung gegeben, eine Mittheilung welche Herr 
 k. k. Bergrath Dr. Franz Ritter v. Hauer in der Sitzung der k. k. 
 geologischen Reichsanstalt am 24. Juni vorlegte. In Bezug auf einige 
 nähere wünschenswerthe Auskünfte erhielt ich später noch freundlichst 
@@ -1804,13 +1778,13 @@ hatte <). Nur zog dort das Meteor nahe horizontal, hier fast senk-
 recht nieder. 
 
 Die Leute zu Terjekfalva, südöstlich unweit Salgo sagten aus, 
-daß „der Schlag, ** als das Meteor scheinbar auf die Berge traf, „so 
+daß "der Schlag, ** als das Meteor scheinbar auf die Berge traf, "so 
 heftig war, daß ihr Dorf erbebte."^ 
 
 Aus dieser Veranlassung berichtet Herr Hazslinszky auch, 
 daß Herr Domherr Stephan Piller, Pfarrer in Töke Terebesim Zem- 
 pb'ner Comitate, 1 y« Meile südöstlich von Gälsz^cs, und etwas Ober 
-9 Meilen südöstlich von Knyahinya, die Bemerkung machte, „daß 
+9 Meilen südöstlich von Knyahinya, die Bemerkung machte, "daß 
 auch bei dem stärksten Donnerwetter seine Fenster nicht erklirren, 
 daß aber bei dieser heftigen Detonation nicht nur die Fenster klirrten, 
 sondern daß auch das ganze Haus erbebte.*' 
@@ -1822,7 +1796,7 @@ an den Ort der Beobachtung in dem Hofe seines Hauses und erzählte,
 wie er etwa um K Uhr, nachdem er seinen Tauben Futter gestreut, eben 
 in das Zimmer zurückkehren wollte, ein eigenthümliches Zischen sein 
 Auge gegen den Himmel zog. Er sah von einer Stelle, welche Herr 
-Hazslinszky auf etwa 40 Grad über dem Horizont schätzte „einen 
+Hazslinszky auf etwa 40 Grad über dem Horizont schätzte "einen 
 schmalen weißen Streif, welcher nach unten in einen Knoten endete. 
 
 
@@ -1835,14 +1809,14 @@ Der Meteonteinfall am 9. Juni 1866 bei Knjahinya.
 811 
 
 
-sich „mit großer Schnelligkeit gegen einen" vorliegenden „Dach- 
+sich "mit großer Schnelligkeit gegen einen" vorliegenden "Dach- 
 winkel zu bewegen,'' welchen Herr Hazsiinszky auf etwa 30 Grad 
-über dem Horizont schätzte. „Der anfangs weiße Knoten wurde immer 
+über dem Horizont schätzte. "Der anfangs weiße Knoten wurde immer 
 röther und übertraf als er das Dach erreichte an Glanz die Sonne. 
 Der Knoten hatte dort die Form eines mit der Spitze gegen den 
 zurückgelassenen Schweif gekehrten Kegels." Herr Ozwald lief 
 eiligst auf die Gasse, in der Meinung das Meteors sei hinter den 
-Häusern niedergefallen, „und zeigte den noch immer sichtbaren 
+Häusern niedergefallen, "und zeigte den noch immer sichtbaren 
 Schweif den Anwesenden, zuerst Herrn Alexander Bornemisza.^ 
 (Die Länge des Schweifes betrug etwa 20 Grad.) Nach ungefähr 
 zwei Minuten zog sich der weiße Nebelstreif in seiner untern Hälfte 
@@ -1881,7 +1855,7 @@ senkrecht in ähnlicher aber entgegengesetzter Weise, von Nord
 gegen Süd ein. Beides wird in der Projection erreicht, Menn man 
 den Winkel EKG (Eperies -Knyahinya-Galszecs) = 27° halbirt, 
 und die Mittellinie FiT bis zum Durchschnitte mit PF verlängert. MK 
-für Galszecs , LK für Eperies sind dann die Projectionen der schein- 
+für Galszecs, LK für Eperies sind dann die Projectionen der schein- 
 baren Bahnen, freilich nur mit einer ganz kleinen Abweichung von 
 etwa t ° von der ganz vollkommen senkrechten Richtung. \^on größe- 
 ren Winkeln aber kann doch keine Rede sein, weil sonst die eine der 
@@ -1937,7 +1911,7 @@ erwähnt, von N. 31*" 0. gegen S. 31** W. bei einer Zenithdistanz
 von etwa 27*". 
 
 Daß sich beim Einbohren die Zenithdistanz zu vergrößern 
-geneigt zeigt, wird kaum Bedenken erregen können , wo der senk- 
+geneigt zeigt, wird kaum Bedenken erregen können, wo der senk- 
 rechte Widerstand wohl eindringlicher angenommen werden darf, 
 als ein seitlicher. Aber auch eine Herabminderung des Abweichungs- 
 winkels von 70° 30' auf 31° dürfte ganz annehmbar erscheinen, 
@@ -1972,27 +1946,27 @@ hatte den Muth, den tiefen Eindruck, welchen das unverhofft erblickte
 Meteor auf ihn hervorbrachte auch durch Darstellungen in Farben 
 festzuhalten. Für die Einsendung derselben bin ich Herrn Hazs- 
 linszky zu dem größten Danke verpflichtet, sowie Herrn Kolbay 
-selbst für spätere Bemerkungen zu denselben , und auch für weitere 
+selbst für spätere Bemerkungen zu denselben, und auch für weitere 
 Mittheilungen. 
 
 Herr Kolbay. hatte die Erscheinung in der Nähe von Eperies 
 gesehen. Nur schwacher Anflug von Federwolken lag nahe dem 
 Horizont. 
 
-Die landschaftliche Darstellung Fig. 1 , Taf. HI, gibt den allgemei- 
+Die landschaftliche Darstellung Fig. 1, Taf. HI, gibt den allgemei- 
 nen Eindruck im Falle. Die beiden Bilder, Fig. 2, Taf. HI und Fig. 3, 
 Taf. HI stellen etwas größer gehalten den so sehr lebhaften Eindruck 
 der reichen Farbentöne vor, in welchem das Meteor erschien. Herr 
 Kolbay begleitet sie mit einigen Worten. Er sah bei einem unwill- 
 kürlichen Blicke nach oben am Himmelsgewölbe die Erscheinung, 
-und zwar aus einer Höhe von 68 bis 70 Grad, „welche mit beschleu- 
+und zwar aus einer Höhe von 68 bis 70 Grad, "welche mit beschleu- 
 nigtem Fluge dahineilte. Die Farbe war die der Weißglühhitze de^ 
 Eisens und der Schweif war zu beiden Seiten mit einem Ultramarin- 
 Saume geschmückt, nach unten ging die Farbe in Orange über'', und 
 man glaubte lebhaft einen festen Körper innerhalb der Flammenhülle 
-zu sehen. „Oftmals flackerte der Schweif auf, besonders zuletzt als 
+zu sehen. "Oftmals flackerte der Schweif auf, besonders zuletzt als 
 die Erscheinung hinter der nächsten Bergkette hinunter tauchte. 
-Übrigens muß ich gestehen, daß ich das letzte großartigste „Wedeln 
+Übrigens muß ich gestehen, daß ich das letzte großartigste "Wedeln 
 mit dem Schweife** nicht einmal gut beachten konnte, ich war zu 
 sehr von der Erscheinung selbst ergriflcn. Über dem Schweife des 
 Meteors sammelte sich Rauch zu einem kleinen Wölkchen.** 
@@ -2006,7 +1980,7 @@ ist, hatte es noch von seiner kosmischen Geschwindigkeit nicht so sehr
 viel eingebüßt. Gegen das Ende der Bahn zu, wo bereits unser 
 
 irdischer atmosphäriscber Widerstand überwiegt, könnte man sich 
-wohl denken , dafi dieser gewissermaassen stoßweise auf den Inhalt 
+wohl denken, dafi dieser gewissermaassen stoßweise auf den Inhalt 
 wirkt, und dadurch eine Ungleichförmigkeit in der Lichterscheinung 
 hervorbringt, unterstützt vielleicht durch die Beschaffenheit des In- 
 haltes, welcher hier aus so vielen, und ungleich großen Theilen bestand. 
@@ -2039,9 +2013,9 @@ Meilen östlich von Eperies, wo der Horizont durch Hügel viel be-
 schränkter ist als in Kapi. 
 
 3. Varallya. Herrn Kolbay verdanke ich noch den Bericht 
-über eine Aussage des Richters von Vitrallya , eine Meile östlich von 
-Eperies. Dieser Johann Bobak sagt aus: „Ich arbeitete mit sieben 
-Männern auf dem Felde , und war mit dem Gesichte gegen Sonnen- 
+über eine Aussage des Richters von Vitrallya, eine Meile östlich von 
+Eperies. Dieser Johann Bobak sagt aus: "Ich arbeitete mit sieben 
+Männern auf dem Felde, und war mit dem Gesichte gegen Sonnen- 
 aufgang gewendet, als ich etwas allmälig lichter werdendes Kopf- 
 großes beobachte^. Hier theilte er anHerrn Kolbay den Ort der Er- 
 scheinung am Himmel unter etwa 3K — 40 mit und dieser entwarf 
@@ -2051,23 +2025,23 @@ in Federzeichnung mittheilte, Taf. III, Fig. & a, b, c» welche aber
 hier in Übereinstimmung mit den farbigen Darstellungen Fig. 1 — 4 
 aus derselben Umgegend ebenfalls in Farben wieder gegeben sind. 
 
-Der beobachtete Körper „war mit seinem breitern Ende gegen 
+Der beobachtete Körper "war mit seinem breitern Ende gegen 
 die Erde zugekehrt, flog immer schneller und schneller zur Erde» es 
 fing ihm ein Schweif zu wachsen an, und bald wurde das Ganze 
-mehr als die Sonne leuchtend. Es rauchte der Schweif so , daß ein 
+mehr als die Sonne leuchtend. Es rauchte der Schweif so, daß ein 
 Wölkchen über ihm entstand. Später wurde der Schweif wieder 
-kleiner, als aber „der Ball*" zur Erde sich neigte, wuchs seitwärts 
+kleiner, als aber "der Ball*" zur Erde sich neigte, wuchs seitwärts 
 ein Knoten »us, wie in Tafel III, Fig. K 6, sodann trennten sich zwei 
 Theile von einander wie in Taf. III, Fig. 5 c, an deren jedem nur noch 
 eine Spur von Schweifen sichtbar blieb, desto größer aber wurde 
-der Rauch , bis sie endlich hinter den Bergen yerschwanden. Zwei 
+der Rauch, bis sie endlich hinter den Bergen yerschwanden. Zwei 
 Donner nach einander wurden gehört''. 
 
 HeiT Kolbay theilt ferner mit, daß Herr Jaskovits von 
 Eperies das Meteor in der Ebene bei Kapi beobachtete, und zwar 
 mit Anfangs- und Ende-Höhenwinkeln von etwa 45 bis 50^ und von 
 ö bis 6^, ferner eine Schlußzertheilung der beiden Stücke in viele 
-kleinere Stücke, „welche feurige Bänder nach sich ließen, und 
+kleinere Stücke, "welche feurige Bänder nach sich ließen, und 
 endlich ganz erloschen und verschwanden**. 
 
 Auch von dem Pächter der Bähn*scheu Güter, Herrn Mis- 
@@ -2089,7 +2063,7 @@ Monddurchmessers, die Länge auf wohl zwei Monddurchmesser.
 
 Die Schätzung des von Herrn Kolbay vernommenen Richters 
 von Värallya, Johann Bobak, gaben zwei und einen halben Mond- 
-durchmesser für den Durchmesser des Meteors , und nicht weniger 
+durchmesser für den Durchmesser des Meteors, und nicht weniger 
 als neun Monddurchmesser für die Länge des Schweifes« So wenig 
 
 
@@ -2111,7 +2085,7 @@ Classificirung der eben gelegenen Wiesen der Gemeinde Rakamnz
 im Szaboicser Comitate. Er erblickte das Meteor, indem er sich links 
 halb umwenden mußte. 
 
-Es war „eine glänzend goldgelbe Kugel, welche obwohl ohne 
+Es war "eine glänzend goldgelbe Kugel, welche obwohl ohne 
 Zweifel im Fallen gewesen, da ihre Bewegung nach abwärts ging, 
 doch eher verschwunden, als gefallen zu sein schien. Die anwesen- 
 den Landleute meinten, sie müße im Rakamazer Gebiete gelallen sein''. 
@@ -2125,14 +2099,14 @@ Die Kugel, eigentlich ein mehr glaskolbenlörmiger Körper,
 bewegte sich von der Linken zur Rechten fortschreitend laugsamer 
 als eine Sternschnuppe, und verschwand oder erlosch plötzlich. 
 
-Die Höhe wird „bis zur Decke eines gewöhnlichen Zimmers'' 
+Die Höhe wird "bis zur Decke eines gewöhnlichen Zimmers'' 
 verglichen. Nimmt man ein ländlich bescheidenes Zimmer 5 Fuß höher 
-als das Auge des Beobachters , und die Entfernung von der Wand 
+als das Auge des Beobachters, und die Entfernung von der Wand 
 15 Fuß, so erscheint der Deckenrand unter einem Höhenwinkel von 
 18°26'6'' (Verhältniß 1 :3), und dies gäbe wieder für die Entfernung 
 von 16 Meilen nach Knyahinya etwa 58/^ Meilen Höhe. 
 
-„Das Firmament war wolkenlos, bei brennender Sonnenhitze, 
+"Das Firmament war wolkenlos, bei brennender Sonnenhitze, 
 Wolken öder Nebel sah ich nicht. 
 
 Einen Schall hörten wir nicht. ** 
@@ -2162,7 +2136,7 @@ längerte sich im Falle und zog einen Schweif nach sich. Kein Geräusch
 war vernehmbar. Die Erscheinung dauerte 3 — 4 Secunden. 
 
 Ein Gendarm Mathias Zoubek sah an jenem 9. Juni Nach- 
-mittags vor der Kaserne „einen feurigen Gegenstand in Form eines 
+mittags vor der Kaserne "einen feurigen Gegenstand in Form eines 
 Besens von der Höhe des heiteren Himmels mit einer Schnelligkeit 
 in die Nähe des Kubinyi*schen Hauses herabfallen, welcher während 
 des Falles Funken zurückließ. Diese Erscheinung hat auf mein Auge 
@@ -2170,13 +2144,13 @@ keine Blendung verursacht. Die Flugzeit des Körpers konnte bei-
 läufig 2—3 Secunden betragen haben, und es war während der 
 ganzen Zeit kein Geräusch hörbar. Die Flammen waren theilweise 
 roth und blau. — Nach dem Falle begab ich mich gleich zu dem 
-„wahrscheinlichen Fall "-Orte hin, konnte aber weder dort noch in 
+"wahrscheinlichen Fall "-Orte hin, konnte aber weder dort noch in 
 der Umgebung etwas von dem Gesehenen finden.* 
 
 Dies die protokollarische Aussage des Gendarmen M. Zoubek, 
 aufgenommen am 14. August durch den k. k. Wachtmeister Grimm 
 in Also Kubin im Arvaer Comitate, wohin Zoubek seit dem Tage 
-des Falles versetzt worden war , an das k. k. Gendarmerie-Postens- 
+des Falles versetzt worden war, an das k. k. Gendarmerie-Postens- 
 Commando in Sz. Miklos. 
 
 Herr Wolf bemerkt; der Kubinyi'sche Garten in Sz. Miklos 
@@ -2189,9 +2163,9 @@ tigt, sah Susanna Kuszka» verehelichte Thurza, Kutschers-
 
 Der MeteorsteiofHil am 9. Jaoi 1806 bei Knyahinjra . 519 
 
-gattin, evangelisch, 40 Jahre alt „g^gen 5 Uhr Abends" eine 
+gattin, evangelisch, 40 Jahre alt "g^gen 5 Uhr Abends" eine 
 feurige Kugel in der Gestalt eines Kruges welche unten helllicht 
-oben aber feurig und gleichsam brennend erschien , bald darauf in 
+oben aber feurig und gleichsam brennend erschien, bald darauf in 
 senkrechter Richtung ganz geräuschlos in den ziemlich breiten und 
 reissenden WiJdbach Jalöcz'' (der ostlich von Andrasfalva vorbei- 
 fließt)*' hinter den Garten des Herrn v. Majiäth zu Andrasfalva ge- 
@@ -2244,7 +2218,7 @@ worden sei.
 
 Wenn mir auch später noch, sei es aus den einen oder den 
 andern Gegenden, oder aus der Nähe des Fallortes Mittheilungen 
-zukämen , welche einiges Licht auf die Vorgänge zu werfen geeignet 
+zukämen, welche einiges Licht auf die Vorgänge zu werfen geeignet 
 wären, so würde ich hochgeehrten Herren für solche Materialien zu 
 einem Dritten Berichte über Knyahinya an einem künftigen Tage 
 vorzulegen recht sehr zu Danke verpflichtet sein. Ich verfehle 
