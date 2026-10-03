@@ -2,6 +2,13 @@
 
 Public Domain Works of Wilhelm Karl Ritter von Haidinger (1795 - 1871)
 
+## Der Meteorsteinfall am 9. Juni 1866 bei Knyahinya nächst Nagy-Berezna im Ungher Comitate.
+
+English - Plain Text  
+English - PDF  
+German - Plain Text  
+German - PDF  
+
 ## Mémoire sur les Relations qui Existent entre les Étoiles Filantes, les Bolides et les Essaims de Météorites.
 
 English - Plain Text  
