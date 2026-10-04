@@ -97,69 +97,17 @@ Der Endpunkt der Bahn auf welcher das Meteor zur Erde gelangte ist durch den Nam
 
 Das Dorf Knyahinya liegt etwa anderthalb geographische Meilen im Nordnordost von Nagy Berezna, dieses selbst wieder 6 1/4 geographische Meilen in gleicher NNO.-Richtung von der Comitats-Hauptstadt Unghvár im Unghvárer Comitat des Königreiches Ungarn.
 
-Die ganze durch den Fall vom 9. Juni mit Meteorsteinen uber- 
-säete Gegend, welche auf Seite 6 und 7 im Grundrisse und land- 
-schaftlich vorliegt, gehört dem Karpathensandsteine an, in den 
-mannigfaltigsten Abänderungen. Auf drei Meilen nach allen Richtungen 
-um Knyahinya kein anderes Gestein. Herrn k. k. Bergrath, Dr. Franz 
-Ritter von Hauer, der in Gesellschaft des gegenwärtigen Herrn 
-k. k. Ministerialrathes Freiherrn v. Hingenau im Jahre 1858 in den 
-Aufnahmen der k. k. geologischen Reichsanstalt die Gegend bereiste, 
-verdanken wir die bezüglichen Berichterstattungen, eine vorläußge 
-in dem von mir für den 31. August 1858 zusammengestellten Berichte 
-(Jahrbuch d. k. k. G. R. A. IX. Bd. 1858. Verhandlungen. S. 115). 
-und sodann eingehender in seinem "Berichte über die geologische 
-ilbersichtsaufnahme im nordöstlichen Ungarn im Sommer 1858*^ (Jahr- 
-buch der k. k. G. R. A. X. Bd. 1859. Seite 399). Namentlich wird 
-für d'e Gegend, welche in Fig. 2 (S. 7) den Vorgrund zu Knyahinya 
-bildet ein "gewöhnlicher Karpathensandstein'' genannt, "ganz ähnlich 
-wie man ihn etwa in^den Brüchen von Dornbach oder Sievering bei 
-Wien beobachtet.** 
+Die ganze durch den Fall vom 9. Juni mit Meteorsteinen übersäete Gegend, welche auf Seite 6 und 7 im Grundrisse und landschaftlich vorliegt, gehört dem Karpathensandsteine an, in den mannigfaltigsten Abänderungen. Auf drei Meilen nach allen Richtungen um Knyahinya kein anderes Gestein. Herrn k. k. Bergrath, Dr. Franz Ritter von Hauer, der in Gesellschaft des gegenwärtigen Herrn k. k. Ministerialrates Freiherrn v. Hingenau im Jahre 1858 in den Aufnahmen der k. k. geologischen Reichsanstalt die Gegend bereiste, verdanken wir die bezüglichen Berichterstattungen, eine vorläufige in dem von mir für den 31. August 1858 zusammengestellten Berichte (Jahrbuch d. k. k. G. R. A. 9. Bd. 1858. Verhandlungen, S. 115), und sodann eingehender in seinem "Berichte über die geologische Übersichtsaufnahme im nordöstlichen Ungarn im Sommer 1858" (Jahrbuch der k. k. G. R. A. 10. Bd. 1859. Seite 399). Namentlich wird für die Gegend, welche in Fig. 2 (S. 7) den Vorgrund zu Knyahinya bildet ein "gewöhnlicher Karpathensandstein" genannt, "ganz ähnlich wie man ihn etwa in den Brüchen von Dornbach oder Sievering bei Wien beobachtet."
 
-Mancherlei Varietäten von Sandstein werden beschrieben, unter 
-andern gegen Norden vorliegend, ein "festes Quarzconglomerat. 
-offenbar eine Fortsetzung des Zuges, der zu Zboj (nordwestlich von 
-Knyahinya) auf Mühlsteine gebrochen wird; es bildet mächtige 
-Bänke, die ebenfalls steil nördlich einfallen.*' (L. c. S. 425). Ohne 
-Zweifel gehören zu diesen der Sztyinszka-Felsen, so wie die Fels- 
-wände des Knyahinyicza-Berges. "Mühlstein-Conglomerat, wie eß im 
-Obigen mehrfach beschrieben wurde,** findet sich auch "am Javornik- 
-berge** (S. 426). 
+Mancherlei Varietäten von Sandstein werden beschrieben, unter andern gegen Norden vorliegend, ein "festes Quarzkonglomerat, offenbar eine Fortsetzung des Zuges, der zu Zboj (nordwestlich von Knyahinya) auf Mühlsteine gebrochen wird; es bildet mächtige Bänke, die ebenfalls steil nördlich einfallen." (L. c. S. 425). Ohne Zweifel gehören zu diesen der Sztyinszka-Felsen, so wie die Felswände des Knyahinyicza-Berges. "Mühlstein-Konglomerat, wie es im Obigen mehrfach beschrieben wurde," findet sich auch "am Javornikberge" (S. 426).
 
-Zur genaueren Würdigung der von den Augen- und Ohren- 
-zengen abgegebenen Aussagen, wird es nicht überflüssig sein zu 
-bemerken, wie sich die verschiedenen Nationalitäten in der Umgegend 
-nach ihrer Anzahl verhalten. 
+Zur genaueren Würdigung der von den Augen- und Ohrenzeugen abgegebenen Aussagen, wird es nicht überflüssig sein zu bemerken, wie sich die verschiedenen Nationalitäten in der Umgegend nach ihrer Anzahl verhalten.
 
-In dem "Gemischten Stuhlrichter-Amte Berezna** (Nach dem 
-Staatshandbuche des Jahres 1859) in einem Markte und 50 Dörfern, 
-wohnten 29,426 Menschen auf 25*10 Quad.'atmeilen (nahe 1 168 auf 
-einer Quadratmeile). Sie sind für den ganzen Bezirk wie folgt 
-beziffert: Deutsche 178, Slovaken 886, Magyaren 137, Ruthenen 
-26.740, Israeliten I.48S, zusammen 29.426. 
+In dem "Gemischten Stuhlrichter-Amte Berezna" (Nach dem Staatshandbuche des Jahres 1859) in einem Markte und 50 Dörfern, wohnten 29,426 Menschen auf 25.10 Quadratmeilen (nahe 1168 auf einer Quadratmeile). Sie sind für den ganzen Bezirk wie folgt beziffert: Deutsche 178, Slovaken 886, Magyaren 137, Ruthenen 26.740, Israeliten 1.485, zusammen 29.426.
 
-Namentlich das Dorf Knyahinya ist weitaus von Ruthenen be- 
-wohnt. Entsprechend die«er Vielsprachigkeit findet man auch auf den 
-geographischen Karten mancherlei Verschiedenheiten der Schreibe- 
-weise der Ortsnamen : So hat die Administrativkarte von Ungarn im 
-Vaaße von 1 : 288.000 oder 4000 Klafter = 1 Zoll, ohne Bergzeich- 
-nung MGroß-Berezna,** die in dem gleichen Maaße ausgeführte mit 
-Bergzeichnung von Zuccheri, nach Lipszky, "Nagy Berezna,'' 
-die neue v. Sc hed ansehe Karte in dem Maaße von 1:S76*000 
-ebenfalls mit Bergzeichnung, hat "Welka Berezna.*" Ich habe ge- 
-glaubt, die magyarische Orthographie befolgen zu müssen, weil die 
-Tagespresse sowohl als die schriftlichen Mittheilungen, welche mir 
-zukamen, sich derselben bedienten, und ich bleibe dadurch auch 
-in Übereinstimmung mit meiner ersten Nachricht über den Gegen- 
-stand. Übrigens sind die Namen auf den verschiedenen Karten selbst 
-mit geringer Consequenz in ihrer Schreibweise durchgeführt, ohne 
-daß dies im Gebrauche störend wäre. Ist man ja doch unter andern 
-in der Orthographie der orientalischen Sprachen immerfort noch vie' 
-mehr im Abwechseln begriffen, sobald es sich darum handelt, die- 
-selben für das europäische Auge durch die lateinischen Schriftzeichen 
-verstäudiich zu machen. 
+Namentlich das Dorf Knyahinya ist weitaus von Ruthenen bewohnt. Entsprechend dieser Vielsprachigkeit findet man auch auf den geographischen Karten mancherlei Verschiedenheiten der Schreibeweise der Ortsnamen: So hat die Administrativkarte von Ungarn im Maaße von 1:288.000 oder 4000 Klafter = 1 Zoll, ohne Bergzeichnung "Groß-Berezna," die in dem gleichen Maaße ausgeführte mit Bergzeichnung von Zuccheri, nach Lipszky, "Nagy Berezna," die neue v. Scheda'sche Karte in dem Maaße von 1:576.000 ebenfalls mit Bergzeichnung, hat "Welka Berezna." Ich habe geglaubt, die magyarische Orthographie befolgen zu müssen, weil die Tagespresse sowohl als die schriftlichen Mitteilungen, welche mir zukamen, sich derselben bedienten, und ich bleibe dadurch auch in Übereinstimmung mit meiner ersten Nachricht über den Gegenstand. Übrigens sind die Namen auf den verschiedenen Karten selbst mit geringer Konsequenz in ihrer Schreibweise durchgeführt, ohne daß dies im Gebrauche störend wäre. Ist man ja doch unter andern in der Orthographie der orientalischen Sprachen immerfort noch viel mehr im Abwechseln begriffen, sobald es sich darum handelt, dieselben für das europäische Auge durch die lateinischen Schriftzeichen verständlich zu machen.
 
-2. Bericht vob lerrn A. rnkäts Aber den Fall. 
+### 2. Bericht von Herrn A. Pukáts über den Fall.
 
 Eine der ersten meiner specielleren Anfragen war an eine 
 Adresse gerichtet gewesen, in Bezug auf welche ich umgehend 
