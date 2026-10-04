@@ -18,75 +18,17 @@ Mitten in den Bedrängnissen des Krieges, während süd- und nordwärts in unser
 
 Ein Fall von meteorischen Projectilen fand am 9. Juni, Nachmittags zwischen 4 und 5 Uhr Statt. Ich erhielt die erste Nachricht über denselben am 28., und zwar bin ich für diese freundliche Anzeige Herrn Prof. Johann Kriesch am K. Josephs-Polytechnicum in Ofen recht innigst zu Danke verpflichtet. Schon hatte er auch die Möglichkeit einer freundlichen Mitteilung eines Exemplares von den mehreren gefallenen Steinen in Aussicht gestellt, mehrere Angaben verzeichnet, und Herrn Franz Kistler, Ingenieur in Unghvár genannt, von welchem ihm die Kunde zukam. Einer Mitteilung von Herrn Direktor Dr. M. Hörnes nach, hatte das Fremdenblatt vom 25. Juni eine kurze Notiz gegeben, in welcher der Unghvárer Advokat Herr Lorenz Riczko als Besitzer mehrerer Bruchstücke des Meteors genannt wird. Unter Datum des 3. Juni von Linz verdanke ich unserem hohen Ehrenmitgliede Seiner kaiserlichen Hoheit dem durchlauchtigsten Herrn Erzherzog Stephan die Angabe, daß man erst nur einen ziemlich großen Stein gefunden, da er aber vollständig, ganz überrindet war, und mehrere Personen doch den Eindruck gehabt, als ob sie mehrere einzelne Gegenstände fallen gesehen, so wurde mehr gesucht, und es fanden sich allerdings noch mehrere Stücke, die man "Bruchstücke" nannte. Auf eine Anfrage von mir erhielt ich sodann von Herrn Kistler eine umfassendere Skizze der Erscheinung, welche ich hier in erster Linie vorlege, und die sich bereits auf die Angaben bezieht, welche Herr Prof. Kriesch mitgeteilt hatte.
 
-"Bezuglich Ihres Geehrten vom 30. Juni nehme ich mir die 
-Freiheit noch einiges als Ergänzung zum Meteorsteinfalle anzuführen, 
-um so mehr als von Seite des Comitates und des Unghvarer Gymna- 
-siums am 2. Juli eine Commission bestimmt wurde, welche sich nach 
-Knyahinya rerfügte, um über die Erscheinung eine authentische 
-Berichterstattung einzuleiten» und um noch vorfindige Meteorstücke 
-einzusammeln. Dieser Commission, welche aus demComitats-Oberarzt 
-Herrn y. Sirö und Herrn Prof. v. Duma bestand, schloß auch ich 
-mich an, um nochmals das Phänomen zu erforschen. Beiliegend folgt 
-auch eine Karte (auf Tafel 1), aus welcher die Lage des Ortes 
-Knyahinya näher geographisch besämmt ist, so wie auch der Ort mit 
-A bezeichnet erscheint (NIO W von Knyahinya), wo das Zer- 
-springen der äußern Hülle stattfand, und von wo aus dann die 
-gefundenen Steine etwa unter 30 bis 38 Grad (zur Erdoberfläche 
-geneigt) herabfielen. Die Anzahl der Steine dürfte eine sehr bedeutende 
-sein, indem bis jetzt etwa schon 60 Stück von verschiedenen Leuten 
-aufgefunden wurden. Der Streifen AB der Karte deutet die Richtung 
-an, in welcher sich die Rauchwolke nach dem Entstehen und nach 
-der Detonation wirbelnd fortbewegte, bis sie endlich in einer Ent*- 
-fernung von S bis 6 Meilen, immer mehr abnehmend, sich auflösend 
-verlor. Die intensivste Erscheinung bei Knyahinya h«rum war fol- 
-gende: Am 9. Juni Nachmittags um 4 bis 5 Uhr entstand ein 
-krachendes Getöse als würden zu beinahe gleicher Zeit hundert 
-Kanonen abgefeuert» und wer plötzlich in der Richtung des Schalles 
-nach dem Horizont sah, bemerkte ein Wölkchen scheinbar so groß 
-als etwa zehnmal die Sonne, in bedeutender Höhe. Das ganze Fir- 
-mament war wolkenlos. Gleich auf den Knall sah man aus dem 
-Wölkchen in allen Richtungen grauliche Rauchstrahlen geschleudert, 
-aber ferner keine Lichterscheinung. Zwei bis drei Minuten nach dem 
-Knalle, fing ein wie mit Steinen aneinanderschlagendes Getöse an, 
-welches etwa 10 bis IS Minuten dauerte und endlich in der Richtung 
-des Pfeiles (S.S^W.) mit der Rauchsäule entschwand. Gleichzeitig 
-mit dem Anfange dieses Getöses bemerkten die auf dem Felde arbei- 
-lenden Bauern auch den Steinfall und etwa eine halbe Stunde lang 
+"Bezüglich Ihres Geehrten vom 30. Juni nehme ich mir die Freiheit noch einiges als Ergänzung zum Meteorsteinfalle anzuführen, um so mehr als von Seite des Comitates und des Unghvárer Gymnasiums am 2. Juli eine Kommission bestimmt wurde, welche sich nach Knyahinya verfügte, um über die Erscheinung eine authentische Berichterstattung einzuleiten, und um noch vorfindige Meteorstücke einzusammeln. Dieser Kommission, welche aus dem Comitats-Oberarzt Herrn v. Siró und Herrn Prof. v. Duma bestand, schloß auch ich mich an, um nochmals das Phänomen zu erforschen. Beiliegend folgt auch eine Karte (auf Tafel 1), aus welcher die Lage des Ortes Knyahinya näher geographisch besämmt ist, so wie auch der Ort mit _A_ bezeichnet erscheint (N. 10° W. von Knyahinya), wo das Zerspringen der äußern Hülle stattfand, und von wo aus dann die gefundenen Steine etwa unter 30 bis 35 Grad (zur Erdoberfläche geneigt) herabfielen. Die Anzahl der Steine dürfte eine sehr bedeutende sein, indem bis jetzt etwa schon 60 Stück von verschiedenen Leuten aufgefunden wurden. Der Streifen _AB_ der Karte deutet die Richtung an, in welcher sich die Rauchwolke nach dem Entstehen und nach der Detonation wirbelnd fortbewegte, bis sie endlich in einer Entfernung von 5 bis 6 Meilen, immer mehr abnehmend, sich auflösend verlor. Die intensivste Erscheinung bei Knyahinya herum war folgende: Am 9. Juni Nachmittags um 4 bis 5 Uhr entstand ein krachendes Getöse als würden zu beinahe gleicher Zeit hundert Kanonen abgefeuert, und wer plötzlich in der Richtung des Schalles nach dem Horizont sah, bemerkte ein Wölkchen scheinbar so groß als etwa zehnmal die Sonne, in bedeutender Höhe. Das ganze Firmament war wolkenlos. Gleich auf den Knall sah man aus dem Wölkchen in allen Richtungen grauliche Rauchstrahlen geschleudert, aber ferner keine Lichterscheinung. Zwei bis drei Minuten nach dem Knalle, fing ein wie mit Steinen aneinanderschlagendes Getöse an, welches etwa 10 bis 15 Minuten dauerte und endlich in der Richtung des Pfeiles (S. 5° W.) mit der Rauchsäule entschwand. Gleichzeitig mit dem Anfange dieses Getöses bemerkten die auf dem Felde arbeitenden Bauern auch den Steinfall und etwa eine halbe Stunde lang einen schwefeligen Geruch. Die bis jetzt aufgefundenen Steine sind alle gleicher Gattung, innerlich und äußerlich, und sind eiskalt zur Erde gelangt. Das war die Erscheinung in der Nähe des Steinfalles. Bei Unghvár herum so wie in dem benachbarten Comitate hörte man beinahe zur selben Zeit ein ähnliches Getöse, sah aber eine feurige Kugel am Firmamente überall radial vom Orte der Explosion weg eilend. Dieselbe Erscheinung sah man nach den in Folge meiner Erkundigungen an mich gelangten Berichten bis jetzt in der Marmaros bei Ökörmezö (12 Meilen in SO.), bei Tokay (16 Meilen in SW.), bei Rakamaz, bei Ujhely (12 M. in SW.), bei Eperies (12 M. in W.), bei Hommona (6 M. in W.) und endlich noch in Galizien bei Ustriky (2 M. in N.). Diese feurigen Kugeln scheinen also dem Innern des bei _A_ zerplatzten Meteors zu entstammen."
 
-einen schwefeligen Geruch. Die bis jetzt aufgefundenen Steine sind 
-alle gleicher Gattung, innerlich und äußerlich, und sind eiskalt zur 
-Erde gelangt. Das war die Erscheinung in der Nähe des Steinfalles. 
-Bei Unghvar herum so wie in dem benachbarten Comitate horte man 
-beinahe zur selben Zeit ein ähnliches Getöse, sah aber eine feurige 
-Kugel am Firmamente überall radial vom Orte der Explosion weg 
-eilend. Dieselbe Erscheinung sah man nach den in Folge meiner 
-Erkundigungen an mich gelangten Berichten bis jetzt in derMarmaros 
-bei Ökörmezö (12 Meilen in SO.), bei Tokay (16 Meilen in SW.), 
-bei Rakamaz, bei Ujhely (12 M. in SW.) . bei Eperies (12 M, in W.), 
-bei Hommona (6 M. in W.) und endlich noch in Galizien bei Ustriky 
-(2 M. in N.). Diese feurigen Kugeln scheinen also dem Innern des 
-bei A zerplatzten Meteors zu entstammen. 
+"Den ausführlichen Bericht, sammt gerichtlich aufgezeichneten Zeugen vom Oberarzt v. Siró und Prof. v. Duma, wird das Comitat an die Ofner Statthalterei und an den Herrn Tavernicus Baron Sennyey übersenden, von wo aus derselbe wohl veröffentlicht werden dürfte. Desgleichen wurden von obiger Kommission noch eine Anzahl von 35 Stück Meteorsteinen eingesammelt, welche ebenfalls als Beilage eingesendet wurden. Im Laufe des Jahres dürften aber noch mehrere Steine gefunden werden."
 
-Den ausführlichen Bericht, sammt gerichtlich aufgezeichneten 
-Zeugen vom Oberarzt v. Sird und Prof. v. Duma, wird das Comitat 
-an die Ofner Statthalterei und an den Herrn Tavernicus Baron 
-S e n n y e y übersenden, von wo aus derselbe wohl veröffentlicht 
-werden dürfte. Desgleichen wurden von obiger Commission noch 
-eine Anzahl von 35 Stück Meteorsteinen eiiigesammelt, welche eben- 
-falls als Beilage eingesendet wurden. Im Laufe des Jahres dürften 
-aber noch mehrere Steine gefunden werden. 
+"Die Steine tragen alle die Spuren des Zersprengtwordenseins. Die Größe der Steine ist ganz verschieden, von ein paar Loth bis zu mehreren Pfunden. Der größte bis jetzt aufgefundene war 27 Pfund schwer. Die größten Stücke sind im Besitze des Nagy-Bereznaer k. k. Revier-Waldbereiters Anton Pokorny in der k. k. Cameral-Domäne Unghvár. Eine von den glühenden Kugeln zu bekommen, ist bis jetzt aber noch Niemanden gelungen."
 
-Die Steine tragen alle die Spuren des Zersprengtwordenseins. 
-Die Größe der Steine ist ganz verschieden, von ein paar Loth bis zu 
-mehreren Pfunden. Der größte bis jetzt aufgefundene war 27 Pfund 
-schwer. Die größten Stucke sind im Besitze des Nagy-Bereznaer k. k. 
-Revier- Waldbereiters Anton Pokorny in der k. k. Cameral-Domäne 
-Unghvär. Eine vojfi den glühenden Kugeln zu bekommen, ist bis jetzt 
-aber noch Niemanden gelungen. 
+"Auf die von E. H. erhaltene Andeutung habe ich eines von meinen zwei kleinen von dort mitgebrachten Stücken (gewogen 17 1/2 Loth) an das k. k. Hof-Mineralienkabinet übersandt."
 
-Auf die von E. H. erhaltene Andeutung habe ich eines von meinen 
-zwei kleinen von dort mitgebrachten Stücken (gewogen 1 7 y, Loth) an 
-das k. k. Hof-Mineraliencabinet ühersandt''. 
+"Unghvár am 6 Juli 1866."
+
+"Franz Kistler."
 
 Mein hochverehrter Freund Herr Director Hörn es hatte eben- 
 falls einen Bericht von Herrn Kistler erhalten, nebst dem oben 
