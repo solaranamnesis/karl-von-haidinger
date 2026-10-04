@@ -30,126 +30,38 @@ Ein Fall von meteorischen Projectilen fand am 9. Juni, Nachmittags zwischen 4 un
 
 "Franz Kistler."
 
-Mein hochverehrter Freund Herr Director Hörn es hatte eben- 
-falls einen Bericht von Herrn Kistler erhalten, nebst dem oben 
-erwähnten Stein, der mir nun vorliegt, und dazu noch ebenfalls mein 
-Bericht, aus welchem so wie aus Herrn Prof. Kriesch's erster freund- 
-licher Klittheilung ich noch einige weitere Angaben anschließe. Die 
+Mein hochverehrter Freund Herr Direktor Hörnes hatte ebenfalls einen Bericht von Herrn Kistler erhalten, nebst dem oben erwähnten Stein, der mir nun vorliegt, und dazu noch ebenfalls mein Bericht, aus welchem so wie aus Herrn Prof. Krieschs erster freundlicher Mitteilung ich noch einige weitere Angaben anschließe. Die kommissionelle Erhebung der Tatsachen wurde auf Veranlassung der K. Ungarischen Statthalterei gepflogen. Die 35 Stücke, welche die Kommission erwarb, wurden in den Dörfern Knyahinya und Striczava auf einer Strecke von 600 Klafter Länge eingesammelt. Den größten Stein von 27 Pfund erwarb Herr Advocat Riczko bei Gelegenheit einer ämtlichen Verhandlung zufällig gleich nach dem Ereignisse. Er zerteilte ihn in mehrere Bruchstücke. Der schwefelige Geruch war eine Meile im Umkreise bemerkbar. Der israelitische Gastwirth gab die bestimmte Äußerung ab, daß der Stein, der, wo er saß vor ihm herabfiel, und den er sogleich aufhob, eiskalt war, aber daß ihm die Hand intensiv nach Schwefel --- und Pulver, auch Knoblauch --- wie der Ausdruck war --- roch, so zwar, daß die Hand noch zwei Tage lang den Geruch beibehielt. Alle Steine haben die Form von Bruchstücken. Die größeren Steine bohrten sich in die Erde ein.
 
-commissionelle Erhebung der Thatsachen wurde auf Veranlassung 
-der K. Ungariselien Statthalterei gepflogen. Die 3S Stücke, welche 
-die Commission erwarb, wurden in den Dörfern Knyahinya und 
-Striczava auf einer Strecke von 600 Klafter Länge eingesammelt. Den 
-größten Stein von 27 Pfund erwarb Herr Advocat Riczko bei 
-Gelegenheit einer amtlichen Verhandlung zuföllig gleich nach dem 
-Ereignisse. Erzertheilte ihn in mehrere Bruchstücke. Der schwefelige 
-Geruch war eine Meile im Umkreise bemerkbar. Der israelitische Gast- 
-wirth gab die bestimmte Äußerung ab, daß der Stein, der, wo er saß 
-Tor«ihm herabfiel, und den er sogleich aufhob, eiskalt war, aber daß ihm 
-die Hand intensiv nach Schwefel — und Pulver, auch Knoblauch — 
-wie der Ausdruck war— roch, so zwar, daß die Hand noch zwei Tage 
-lang den Geruch beibehielt. Alle Steine haben die Form von Bruch- 
-stücken. Die größeren Steine bohrten sich in die Erde ein. 
+Sehr wichtig ist eine freundliche Mitteilung, welche ich Herrn k. k. Ministerialrat Freiherrn Heufler v. Hohenbühel verdanke, und welche ihm von Herrn Professor Friedrich Hazslinszky in Eperies, also aus einer Entfernung von etwa 12 Meilen Luftlinie westlich vom Schauplatze der Erscheinung zugegangen war.
 
-Sehr wichtig ist eine freundliche Mittheilung, welche ich Herrn 
-k. k. Ministerialrath Freiherrn Heufler v. Hohenbühel verdanke, 
-und welche ihm von Herrn Professor Friedrich Hazsiinszky in 
-Eperies, also aus einer Entfernung von etwa 12 Meilen Luftlinie west- 
-lich vom Schauplatze der Erscheinung zugegangen war. 
+"Am 9. Juni, Nachmittag kurz vor 5 Uhr waren hier viele hundert Leute Zeugen einer glänzenden Lufterscheinung. Eine große Feuerkugel in Form eines flammenden Besens, mit schwarzrotem Stiel voran und flammendem Kopf flog in östlicher Richtung über Saros und Zemplin und platzte mit ungeheurem Krachen, daß die Erde und Gebäude weit und breit erbebten. Die Trümmer derselben wurden bei dem Dorfe Knyahinya in Unghvár zerstreut."
 
-"Am 9. Juni, Nachmittag kurz vor & Uhr waren hier viele 
-hundert Leute Zeugen einer glänzenden Lufterscheinung. Eine große 
-Feuerkugel in Form eines flammenden Besens, mit schwarzrothem 
-Stiel voran und flammendem Kopf flog in ostlicher Richtung über 
-Saros und Zemplin und platzte mit ungeheurem Krachen, daß die 
-Erde und Gebäude weit und breit erbebten. Die Trümmer derselben 
-wurden bei dem Dorfe Knyahinya in Unghvär zerstreut". 
+In den vorliegenden ersten Mitteilungen finden sieh allerdings manche Angaben, welche die eigentlichen Tatsachen der Schallerscheinung und der dieselben begleitenden Eigentümlichkeiten einigermaßen rätselhaft erscheinen lassen. Manches davon beruht darauf, daß summarische Angaben vorliegen, anstatt einzelner individueller Aussagen. Wir dürfen hoffen, daß der an die K. Ungárische Statthalterei abzuliefernde Bericht manche dieser letzteren enthalten wird, und daß es sodann auch möglich sein wird, fernere Fragen zu neueren Erhebungen zu entwerfen."
 
-In den vorliegenden ersten Mittheilüngen finden sieh allerdings 
-manche Angaben, welche die eigentlichen Thatsachen der Schall- 
-erscheinung und der dieselben begleitenden Eigenthümlichkeiten 
-einigermaßen räthselhaft erscheinen lassen. Manches davon beruht 
-darauf, daß summarische Angaben vorliegen, anstatt einzelner indi- 
-vidueller Aussagen. Wir dürfen hoffen, daß der an die K. Ungarische 
-Statthalterei abzuliefernde Bericht manche dieser letzteren enthalten 
-w^ird, und daß es sodann auch möglich sein wird, fernere Fragen zu 
-neueren Erhebungen zu entwerfen. • 
+Namentlich scheint es rätselhaft, wie man aus größerer Entfernung ja aus der großen von 6 bis 16 Meilen eine Feuerkugel mit aussprühenden glühenden Kugeln sah, während in der Nähe nur an eine etwa zehnmal so große Wolke als die Sonne mit ausgeschleuderten graulichen Rauchstrahlen die Schallerscheinung sich anschloß. Man kann nicht anders denken, als daß diese Verschiedenheit der Erscheinung eben durch die verschiedene Entfernung bedingt war.
 
-Namentlich scheint es räthselhaft, wie man aus größerer Ent- 
-fernung ja aus der großen von 6 bis 16 Meilen eine Feuerkugel mit 
-aussprühenden glühenden Kugeln sah, während in der Nähe nur an 
+Es wird sich dann auch die Höhe, der Zug des Meteors genauer bestimmen lassen, wenn einzelne Angaben vorliegen.
 
-eine etwa zehnmal so große Wolke als die Sonne mit ausgeschleu- 
-derten graulichen Rauchstrahlen die Schallerscheinung sich anschloß. 
-Man kann nicht anders denken, als daß diese Verschiedenheit der 
-Erscheinung eben durch die verschiedene Entfernung bedingt war. 
+Vorläufig möge hier der von Herrn Ingenieur Kistler dem k. k. Hof-Mineralienkabinet freundlichst dargebrachte Stein als Grundlage zu einigen Betrachtungen gelten, welche es gewiß wichtig sein wird, mit einer größeren Anzahl von Exemplaren zu vergleichen.
 
-Es wird sich dann auch die Höhe, der Zug des Meteors genauer 
-bestimmen lassen, wenn einzelne Angaben vorliegen. 
+Er ist, wie man von Meteoriten zu sagen pflegt ein "Ganzer Stein," nicht ein Bruchstück von einem solchen. Er ist ganz vollständig überrindet. Die Gestalt läßt sich beschreiben als eine unregelmäßige einfache vierseitige Pyramide, die ziemlich ebene Basis länglich 3 Zoll gegen 2 1/4 (80 gegen 60 Millim.), mit einer Höhe von 2 Zoll (54 Millim.). Auch die Seitenflächen halten ziemlich ihre Ebene ein, und die Grate oder Kanten sind sehr bestimmt, und nur ganz wenig hin und wieder abgerundet. Eine der Neigungen ist etwa 50°, also weit schärfer als die Kante eines Tetraëders. Gewiß ist indessen doch das Ganze ein wahres Bruchstück, aber eben so gewiß nicht ein solches, das aus einem Hauptkörper erst in unserer Atmosphäre gelegentlich der Detonation seine Bruchstückform angenommen hätte. Unzweifelhaft ist bereits ein Schwarm von Bruchstücken in der Erdatmosphäre angekommen, und in derselben in dem Vorgange des Widerstandes derselben auf allen Seiten gleichförmig überrindet worden. Jede der fünf Haupt-Seitenflächen trägt eine große Zahl kleiner Schmelzgrübchen, wie sie an den meisten Meteoriten vorkommen. Sie verraten keine Orientirung in der Bewegung des Steines. Der Grad ihrer Kleinheit, etwa zwei bis vier Linien (4 bis 7 Millim.) deutet auf schwierige Schmelzbarkeit der Grundmasse.
 
-Vorläufig möge hier der von Herrn Ingenieur K ist 1er dem k. k. 
-Hof-Mineraliencabinet freundlichst dargebrachte Stein als Grundlage 
-zu einigen Betrachtungen gelten, welche es gewiß wichtig sein wird, 
-mit einer größeren Anzahl von Exemplaren zu vergleichen. 
+An den schärfsten Kanten ist der Stein hin und wieder abgestossen. Es muß dies vorläufig hinreichen, um zu beurteilen, in welche Abteilung der bisher bekannten Meteorsteine sich dieser neue von Knyahinya bei Berezna unterordnet, und man kann mit ziemlicher Sicherheit schließen, wie dies Herr Direktor Hörnes andeutete, daß er in die Nähe von Parnallee, Assam und andern mit einer marmorirten Farbenzeichnung im Schliffe (marbled appearance), zu ordnen sein wird. Die Eröffnung des Innern durch Entzweischneiden, Schleifen und Poliren, die chemische Analyse endlich, der Metallteile sowohl als der steinigen Masse wird fernere Vergleichungspunkte gewähren, wenn späterhin mehrere Exemplare in den Kreis der Untersuchung gezogen werden. Das eigenthümliche Gewicht des Exemplares fand ich bei 20° R. = 3.520.
 
-Er ist, wie man von Meteoriten zu sagen pflegt ein "Ganzer 
-Stein**, nicht ein Bruchstück von einem solchen. Er ist ganz vollstän- 
-dig überrindet. Die Gestalt läßt sich beschreiben als eine unregel- 
-mäßige einfache vierseitige Pyramide, die ziemlich ebene Basis 
-länglich 3 Zoll gegen 21/4 (80 gegen 60 Millim.), mit einer Höhe 
-von 2 Zoll (S4 Millim.). Auch die Seitenflächen halten ziemlich ihre 
-Ebene ein, und die Grate oder Kanten sind sehr bestimmt, und nur 
-ganz wenig hin und wieder abgerundet. Eine der Neigungen ist et^a 
-50**, also weit schärfer als die Kante eines Tetraeders. Gewiß ist 
-indessen doch das Ganze ein wahres Bruchstück, aber eben so gewiß 
-nicht ein solches, das aus einem Hauptkörper erst in unserer Atmos- 
-phäre gelegentlich der Detonation seine Bruchstückform angenommen 
-hätte. Unzweifelhaft ist bereits ein Schwärm von Bruchstücken in 
-der Erdatmosphäre angekommen, und in derselben in dem Vorgange 
-des Widerstandes derselben auf allen Seiten gleichförmig überrindet 
-worden. Jede der fünf Haupt-Seitenflächen trägt eine große Zahl 
-kleiner Schmelzgrübehen, wie sie an den meisten Meteoriten vorkom- 
-men. Sie verrathen keine Orientirung in der Bewegung des Steines. 
-Der Grad ihrer Kleinheit, etwa zwei bis vier Linien (4 bis 7 Millim.) 
-deutet auf schwierige Schmelzbarkeit der Grundmasse. 
+[Fig. 1.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-1.png)
 
-An den schärfsten Kanten ist der Stein hin und wieder abge- 
-stossen. Es muß dies vorläufig hinreichen, um zu beurtheilen, in 
-welche Abtheilung der bisher bekannten Meteorsteine sich dieser 
-neue von Knyahinya bei Berezna unterordnet, und man kann mit 
-ziemlicher Sicherheit schließen, wie dies Herr Director Hörnes 
-andeutete, daß er in die Nähe von Parnallee, Assam und andern mit 
-einer marmorirten Farbenzeichnung imSchlifi'e (marbled appearance), 
-zu ordnen sein wird. Die Eröffnung des Innern durch Entzwei- 
-
-schneiden, Schleifen und Poliren, die chemische Analyse endlich, der 
-Metailtheile sowohl als der steinigen Masse wird fernere Verglei- 
-chungspunkte gewähren, wenn späterhin mehrere Exemplare in den 
-Kreis der Untersuchung gezogen werden. Das eigenthümliche Gewicht 
-des Exemplares fand ich bei 20** R. = 3-820. 
-
-Jedenfalls glaube ich, ist bei der heutigen Mittheilung, welche 
+Jedenfalls glaube ich, ist bei der heutigen Mitteilung, welche 
 doch noch sehr den Charakter einer bloß vorläufigen besitzt, so viel 
 gewonnen, daß der Fall von Knyahinya bei Berezna im Ungher-Comi- 
 tate in Ungarn am 9. Juni 1866 zu jenen zählt, in welchen ein ziem- 
-lich ansehnlicher Schwärm einzelner Gesteinfragmente auf unserer 
-Erde angekommen ist. 
+lich ansehnlicher Schwarm einzelner Gesteinfragmente auf unserer 
+Erde angekommen ist.
 
-Nachschrift. 
+---
 
-Eben erhalte ich von meinem hochverehrten Freunde Herrn A. 
-Daubr^e in Paris einen Separat-Abdruck des Berichtes, welchen er 
-an die Academie des Sciences des Institut Imperial de France am 
-18. Juni d. J. erstattet über einen Meteorstein fall, welcher am 30. Mai 
-1866 Früh 3 Uhr 48 Minuten in der Nähe von Saint-Mesmin im 
-Departement de TAnbe, etwa 20 Meilen östlich von Paris sich zu- 
-getragen, also nur 10 Tage vor dem Falle von Knyahinya. Drei Steine 
-von etwa 2%, 3«/a und 7 Pfund wurden aufgefunden. Sie mögen 
-nahe mit der Beschaffenheit der Knyahinya-Steine übereinstimmen, 
-da bei denselben von Herrn Daubr^e als nächste Ähnlichkeit zu- 
-vörderst Parnallee (28. Februar 1857) genannt wird, ferner auch 
-Bremervörde (13. Mai 1858), einige der Steine von TAigle (26. April 
-1803) und von Honolulu (18. September 1825). 
+## Nachschrift.
+
+Eben erhalte ich von meinem hochverehrten Freunde Herrn A. Daubrée in Paris einen Separat-Abdruck des Berichtes, welchen er an die Académie des Sciences des Institut Impérial de France am 18. Juni d. J. erstattet über einen Meteorstein fall, welcher am 30. Mai 1866 Früh 3 Uhr 45 Minuten in der Nähe von Saint-Mesmin im Departement de l'Aube, etwa 20 Meilen östlich von Paris sich zugetragen, also nur 10 Tage vor dem Falle von Knyahinya. Drei Steine von etwa 2 1/2, 3 1/2 und 7 Pfund wurden aufgefunden. Sie mögen nahe mit der Beschaffenheit der Knyahinya-Steine übereinstimmen, da bei denselben von Herrn Daubrée als nächste Ähnlichkeit zuvörderst Parnallee (28. Februar 1857) genannt wird, ferner auch Bremervörde (13. Mai 1855), einige der Steine von l'Aigle (26. April 1803) und von Honolulu (18. September 1825).
 
 ---
 
@@ -367,7 +279,7 @@ Fig. 2 den Plan sowohl, als auch eine übersichtliche landschaftliehe
 
 Grenze ztcischen dem Zempliner und Unghvdrer Comitat, 
 
-—._._._ Eingeschlossener Raum des MeteorsieinfaHes am 9. Juni 1866, 
+---._._._ Eingeschlossener Raum des MeteorsieinfaHes am 9. Juni 1866, 
 D Beiläufige Stelle der grösseren aufgefundenen Stücke. Ziffern, Gewicht 
 
 in Pfunden, 
@@ -402,7 +314,7 @@ zwei darauiTolgende immer schwächere, die meiner Ansicht nach
 aber blos. das in den Bergen wiedertönende Echo des ersten waren. 
 Ich blickte gegen den Himmel, der mit Ausnahme einer kleinen, ganz 
 dem gewöhnlichen von der Nähe aus gesehenen Nebel gleichenden 
-Wolke, die sich über dem 800 — 1000 Fuß relativ hohen kegel- 
+Wolke, die sich über dem 800 --- 1000 Fuß relativ hohen kegel- 
 förmigen Berge Knyahinyicza ausbreitete, klar und wolkenlos war, 
 und ich glaubte Anfangs dieselbe habe sich entladen und in den Berg 
 eingeschlagen. 
@@ -428,17 +340,9 @@ schweren Donner auflöste, schwach, stärker und
 wieder schwach abfallend, und gegen eine Minute 
 dauerte. Die Wolke, die sich schon wahrend des 
 
+[Fig. 2.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-2.png)
 
-^^^^ 
-
-
-iSüd Kord. 
-
-
-.^ifil 
-
-
-Der Meteor8teiiir»ll am 9. Juni 1866 bei Kiiyahinja. 483 
+[Fig. 3.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-3.png)
 
 Rollens bewegte, kam auf uns mit wachsender Geschwindigkeit, mit 
 stets größerem Sehwinkel, also näher, und verschwand scheinbar in 
@@ -462,9 +366,9 @@ einem Kanonenschuß ähnlicher Krach in der Richtung gegen Nord-
 ost ertonte, worüber ich mit meiner Frau erschrocken bin und ins 
 Vorhaus vor der Thür mich zurückgezogen habe. Hierauf, gleich 
 nach diesem außerordentlichen Krach folgte nun ein starkes Rollen, 
-dann Kochen, so wie das Wasser kocht, welches beiläufig 3—4 Mi- 
+dann Kochen, so wie das Wasser kocht, welches beiläufig 3---4 Mi- 
 nuten gedauert hat. Über dieses Rollen bin ich heraus ins Freie, und 
-in dem Augenblicke ist einer von diesen Meteorsteinen 6 — 7 Schritt 
+in dem Augenblicke ist einer von diesen Meteorsteinen 6 --- 7 Schritt 
 vor meinen Augen, in schiefer Richtung von Nordost zur Erde ge- 
 fallen, durch die Äste eines beim Wirthshausgebäude stehenden 
 Zwetschkenbaumes, wobei ein Ästchen von 1/4 Zoll Durchmesser 
@@ -611,7 +515,7 @@ Kortkovics aufmerksam gemacht wurde, zu welchem ich mich
 begab, als das ganze Getöse schon vorüber war, und bemerkte ieb, 
 daß man im vorerwähnten Locale, dessen zwei Fenster nach Norden, 
 also in der Richtung des stattgehabten Ereignisses gehen, mehr 
-spurte als im Freien. — Dieses sind meines guten Erinnerns nach 
+spurte als im Freien. --- Dieses sind meines guten Erinnerns nach 
 meine gemachten, genau dargestellten Beobachtungen. 
 Unghvär, 30. August 1866. 
 
@@ -631,7 +535,7 @@ hinzogen.
 Vor t/aS Uhr trat aus dem azurblauen Firmamente ein unan- 
 sehnliches weißes, mit schwarzen Punkten versehenes längliches 
 Wölkchen hervor, mit einer Spitze gegen Nordosten, mit der ent- 
-gegengesetzten gegen Südwesten gewendet. — Etwa gegen */s5Uhr 
+gegengesetzten gegen Südwesten gewendet. --- Etwa gegen */s5Uhr 
 erzitterte die Gegend durch einen auffallenden donnerähnlichen 
 Schall, gleich dem Knalle eines abgeschossenen schweren Geschützes 
 mit wiedergegebenem Echo. "< Das Waldbereiter-Amtsgebäude (indem 
@@ -649,11 +553,11 @@ feuer eines Militär-Mannschaftszuges, oder Sieden von Wasser. Man
 verspürte nun einen starken Schwefelgeruch und sah wie sich kleine 
 und größere Rauchstreifen aus der kleinen Wolke mit Aufleuchten 
 und Blitzesschnelle entlösten und in nordöstlicher Richtung, in bei- 
-läufigi^r Entfernung von 3—4 Meilen (dies ist wohl erst später zu* 
+läufigi^r Entfernung von 3---4 Meilen (dies ist wohl erst später zu* 
 gefugt) niederflogen. Das Aufleuchten war ähnlich einem schwachen 
 Blitze mit röthlichem Lichte. Von einer feurigen Kugel oder sonst 
 einer anderen größere Dimensionen annehmenden Lichterscheinung 
-habe ich gar nichts bemerkt. — Das Ereigniß endete nach 3 Minuten 
+habe ich gar nichts bemerkt. --- Das Ereigniß endete nach 3 Minuten 
 langer Dauer. 
 
 Nagy Berezna, 31. August 1866. 
@@ -676,7 +580,7 @@ gleich dem Sieden des Wassers oder auch Zusammenschlagen v^n
 Steinen; gleichzeitig sah man kleine Rauchstreifen, mitunter auch 
 größere aus der Wolke entfliegen, welche in einer Richtung nach 
 Nordosten auf eine Entfernung von 3 Meilen (dies aus späteren 
-Nachrichten) niederschlugen. — Dauer 3 Minuten. — Am Schlüsse 
+Nachrichten) niederschlugen. --- Dauer 3 Minuten. --- Am Schlüsse 
 Schwefelgeruch. 
 
 Schließlich muß ich noch bemerken, daß ich die kleine Wolke, 
@@ -751,8 +655,8 @@ in die Erde, doch wurde keiner derselben aufgefunden.
 2. Aus Sztricsava. Zar Anna. Ist verheiratet an ZarVasyl, 
 und Mutter eines Kindes. Arbeitete auf dem Felde. Stand regungslos 
 Yor Schreck nach dem ober dem Felsen Sztyinszka gehörten 
-Schlage. 3 — 4 Minuten nach demselben fielen um sie herum in einer 
-Entfernung von 3 — 4 Schritten vier Stücke Steine herab. Am 
+Schlage. 3 --- 4 Minuten nach demselben fielen um sie herum in einer 
+Entfernung von 3 --- 4 Schritten vier Stücke Steine herab. Am 
 vierten Tage wurden drei derselben gefunden, jeder über ein Pfund 
 schwer. Den vierten fand man nicht. 
 
@@ -898,7 +802,7 @@ sie auch auf den nämlichen Standpunkt sich bezieht, wie diejenige,
 welche oben von Herrn Anton Puk&ts aufgeführt wurde. Aber sie 
 gewinnt eben dadurch wieder an Gewicht. Beide Herren waren 
 nämlich im Forstdienste dort mit einer Anzahl von Aufsehern und 
-Arbeitern im Ganzen 7—8 Personen gegenwärtig. Der Schall wird 
+Arbeitern im Ganzen 7---8 Personen gegenwärtig. Der Schall wird 
 von Herrn Negedlo verglichen mit dem Knall einer Sechspfünder- 
 Kanone. Er unterschied einen ersten kleinen und unmittelbar darauf 
 den großen starken Knall, worauf alsbald ein tiefstimmiges Kollern 
@@ -1314,13 +1218,13 @@ ander getrennt. Zu allererst blieb das staubförmige als Nebelwolken-
 spur zurück. Jeder einzelne Stein von denen, welche herabfielen und 
 aufgefunden wurden ist mit seiner Rinde rundum bekleidet, von den 
 größten beginnend, bis zu dem oben erwähnten Exemplare von «/g 
-Loth (genauer gewogen 2*245 Gr.) Gewicht — welches von der sieben 
+Loth (genauer gewogen 2*245 Gr.) Gewicht --- welches von der sieben 
 Jahre alten Maria Mohnar aus Sztricsava gefunden wurde, und das 
 ich Herrn Negedlo verdanke. Aber sie sind sämmtlich beschädigt. 
 Es ist wohl ganz natürlich daran zu denken, daß diese Beschädigungen 
 während des zweiten Theiles der Schallerscheinungen, nach dem ersten 
 Schlage also, in welchem dasVacuum sich bei der Verlangsamung der 
-früheren — im Räume planetaren — Geschwindigkeit schloß, und die 
+früheren --- im Räume planetaren --- Geschwindigkeit schloß, und die 
 Steine vielfach aneinander stießen. Jeder Stein für sich muß durch 
 das entgegenstehende Hinderniß der Atmosphäre entsprechend seiner 
 Gestalt eine rotirende Bewegung annehmen, deren Axe die Richtung 
@@ -1392,7 +1296,7 @@ Stück 4 " 21 " 2-3S0
 
 
 1) Eine Leitform der Meteoriten. Sitzung am 19. April 1860. Sitznngsb. d. kais. Akad. 
-d. Wissensch. mathem.-naturw. Cl. Bd. XL. S. 525. — Stannern. Ein zweiter 
+d. Wissensch. mathem.-naturw. Cl. Bd. XL. S. 525. --- Stannern. Ein zweiter 
 Meteorstein, durch seine Rinde genau in seiner kosmischen Bahn orientirt. Sitzung 
 •m 2t. Mti ISet. SiUungsb. Bd. XLV. S. 791. 
 
@@ -1459,7 +1363,7 @@ welches man sich von dem Vorgänge zu entwerfen durch die
 übrigen Erscheinungen angezogen fühlt. 
 
 Die Zusammenstellung der Skizzen des großen Steines im kleinen 
-Maaßstabe Ton — der Natur wird eine gute Übersicht gewähren, so wie 
+Maaßstabe Ton --- der Natur wird eine gute Übersicht gewähren, so wie 
 
 sie hier unter einan- 
 der geordnet sind. 
@@ -1473,7 +1377,7 @@ gedrückt, ist auch
 die beide verbin- 
 dende Ansicht von 
 oben Fig. 9 gege- 
-ben.— Höchst cha- 
+ben.--- Höchst cha- 
 racteristisch ist in 
 dieser Übersicht die 
 Lage der gi'ossen 
@@ -1524,7 +1428,7 @@ in Besitz genommen worden ist. Und selbst die beiden Bruchstücke
 übertreffen noch weit die bekannten Exemplare anderer Steinfalle. 
 Der Stein von Ensisheim (7. Nov. 1492) hatte allerdings ein Gewicht 
 von 270 Pfund (127-270 K.), aber der größte noch übrige Rest, in 
-der Kirche daselbst aufbewahrt, soll nur mehr 40 — SO Kilogr. wiegen 
+der Kirche daselbst aufbewahrt, soll nur mehr 40 --- SO Kilogr. wiegen 
 (B u c h n e r, Meteoriten in Sammlungen S. 1, 70 Pfund nach Benzen- 
 berg, 100 Pfund nach Chi adni (Über Feuer-Meteore S. 206). Alle 
 anderen sind kleiner, Juvinas (15. Juni 1821), HO Kilogr., davon 42 
@@ -1534,7 +1438,7 @@ Kilogr. im Mus^e d'histoire naturelle in Paris, New Concord (1. Mai
 Wohl hat uns noch der Bericht über eine größere Masse erreicht, 
 welche nach Plutarch bei Aegospotamos im Thracischen Chersones 
 (ungefähr 465 vor unserer Zeitrechnung) herabfiel, nach Pliniusvon 
-der Größe einer Wagenlast — magitudine vehis (Chladni S. 176), aber 
+der Größe einer Wagenlast --- magitudine vehis (Chladni S. 176), aber 
 es ist kein Stück davon in Sammlungen erhalten. 
 
 Viele weit größere Eisenmassen sind freilich vorhanden, und 
@@ -1710,7 +1614,7 @@ Thatsache.
 In Bezug auf die Verschiedenheit des Eindruckes mdchte ich 
 hier bemerken, daß dies wohl gar sehr von den Individualitäten der 
 Beobachter abhängig ist, und daher wohl nicht jeder das ganz Gleiche 
-gesehen haben muß — immer bleibt es Aufgabe den Eindruck unver- 
+gesehen haben muß --- immer bleibt es Aufgabe den Eindruck unver- 
 kümmert zu verzeichnen. Die Form des brennenden Besens mit einem 
 Stiele voran hat aber unter andern ein auffallend ähnliches Gegenstück 
 in der Beobachtung des Lieutenants Aylesbury in Bezug auf den 
@@ -1960,11 +1864,11 @@ Eperies. Dieser Johann Bobak sagt aus: "Ich arbeitete mit sieben
 Männern auf dem Felde, und war mit dem Gesichte gegen Sonnen- 
 aufgang gewendet, als ich etwas allmälig lichter werdendes Kopf- 
 großes beobachte^. Hier theilte er anHerrn Kolbay den Ort der Er- 
-scheinung am Himmel unter etwa 3K — 40 mit und dieser entwarf 
+scheinung am Himmel unter etwa 3K --- 40 mit und dieser entwarf 
 unter seiner Angabe die Zeichnungen, welche letzterer mir freundlichst 
 in Federzeichnung mittheilte, Taf. III, Fig. & a, b, c» welche aber 
 
-hier in Übereinstimmung mit den farbigen Darstellungen Fig. 1 — 4 
+hier in Übereinstimmung mit den farbigen Darstellungen Fig. 1 --- 4 
 aus derselben Umgegend ebenfalls in Farben wieder gegeben sind. 
 
 Der beobachtete Körper "war mit seinem breitern Ende gegen 
@@ -1994,7 +1898,7 @@ daß er sogleich Boten aussandte, um einen etwa herabgefallenen
 Stein zu suchen. 
 
 Herr Kolbay gibt auch einige Schätzungen der scheinbaren 
-Größen. Ihm selbst hatte das Meteor, als er es unter 68—70 Grad 
+Größen. Ihm selbst hatte das Meteor, als er es unter 68---70 Grad 
 Höhe erblickte den vierten Theil des Vollmond-Durchmessers zu 
 besitzen geschienen, bei einer Länge von Einem Monddurchmesser 
 (Herr Kolbay bedient sich der Zeichen 3" und T, ich glaube nach 
@@ -2034,7 +1938,7 @@ den Landleute meinten, sie müße im Rakamazer Gebiete gelallen sein''.
 
 Die Größe wird mit der eines Kindeskopfes verglichen. Wohl 
 ist ein solcher Vergleich mißlich. Indessen gibt ein Durchmesser 
-von 4 — 5 Zoll bei 38 — 42-2 Fuß Entfernung die scheinbare Mondes- 
+von 4 --- 5 Zoll bei 38 --- 42-2 Fuß Entfernung die scheinbare Mondes- 
 gröfle von 30 Bogenminuten. 
 
 Die Kugel, eigentlich ein mehr glaskolbenlörmiger Körper, 
@@ -2075,7 +1979,7 @@ von Szent-Miklos, sah Nachmittags am 9. Juni hinter seinem Hause,
 auf seiner Wiese hart am linken Waagufer stehend, genau gegen 
 Osten zu über Andrasfalva eine Feuerkugel senkrecht fallen. Sie ver- 
 längerte sich im Falle und zog einen Schweif nach sich. Kein Geräusch 
-war vernehmbar. Die Erscheinung dauerte 3 — 4 Secunden. 
+war vernehmbar. Die Erscheinung dauerte 3 --- 4 Secunden. 
 
 Ein Gendarm Mathias Zoubek sah an jenem 9. Juni Nach- 
 mittags vor der Kaserne "einen feurigen Gegenstand in Form eines 
@@ -2083,9 +1987,9 @@ Besens von der Höhe des heiteren Himmels mit einer Schnelligkeit
 in die Nähe des Kubinyi*schen Hauses herabfallen, welcher während 
 des Falles Funken zurückließ. Diese Erscheinung hat auf mein Auge 
 keine Blendung verursacht. Die Flugzeit des Körpers konnte bei- 
-läufig 2—3 Secunden betragen haben, und es war während der 
+läufig 2---3 Secunden betragen haben, und es war während der 
 ganzen Zeit kein Geräusch hörbar. Die Flammen waren theilweise 
-roth und blau. — Nach dem Falle begab ich mich gleich zu dem 
+roth und blau. --- Nach dem Falle begab ich mich gleich zu dem 
 "wahrscheinlichen Fall "-Orte hin, konnte aber weder dort noch in 
 der Umgebung etwas von dem Gesehenen finden.* 
 
@@ -2096,7 +2000,7 @@ des Falles versetzt worden war, an das k. k. Gendarmerie-Postens-
 Commando in Sz. Miklos. 
 
 Herr Wolf bemerkt; der Kubinyi'sche Garten in Sz. Miklos 
-ist von dem Thore der Gendarmerie-Kaserne etwa 60—80 Klafter 
+ist von dem Thore der Gendarmerie-Kaserne etwa 60---80 Klafter 
 östlicher gelegen. 
 
 Auf dem Felde mit Erdäpfel-Umhäufeln zu Andrasfalva beschäf- 
@@ -2183,4 +2087,10 @@ Westen 14. December 1807, Stannern 22. Mai 1808, Juvinas
 IS. Juni 1821, Allahabad 30. November 1822, Cold Bokkeveld 
 13. October 1838, New Concord 1. Mai 1860, Orgueil 14. Mai 1864 
 und so manche andere glänzend anreihen. 
+
+[Tafel 1.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-table-1.png)
+
+[Tafel 2.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-table-2.png)
+
+[Tafel 3.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-table-3.png)
 
