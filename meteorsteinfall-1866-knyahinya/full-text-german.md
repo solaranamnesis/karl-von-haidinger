@@ -79,89 +79,23 @@ Mir selbst waren ebenfalls bald darauf neuere Nachrichten zugekommen. Unter ande
 
 Am 16. August waren die einzelnen Abdrücke meines Berichtes vom 12. Juli fertig. Ich säumte nicht, dieselben den beständigen meteoritologischen Freunden, dann aber auch hochverehrten Persönlichkeiten namentlich in der Umgebung des Falles zu übersenden, mit der Bitte, möglichst unmittelbare Beobachtungen freundlichst mitteilen zu wollen, als Ergänzungen oder genauere Darstellung der bisher bekannt gemachten.
 
-Auf diese Anfragen, so wie auf einige bereits früher gestellte, 
-kamen mir zahlreiche Auskünfte zu, für welche ich hier den hoch- 
-verehrten Herren den verbindlichsten Dank darbringe, den Herren 
-Rector Friedrich Hazsiinszky und Studirenden Johann Kolbay in 
-Eperies, Freiherrn Ludwig v. Fischer und^Herrn Apotheker Armin 
-Thai SS zu Galszecs, k. k. VValdbereiter Anton Pokorny, k. k. 
-Forst-Candidaten Anton Pukäts und k. k. Waldaufseher Wenzel 
-Negedio in Nagy Berezna, Regalienpäehter Ignaz Feuermann in 
-Knyahinya, fortwahrend auch Herrn Ingenieur Kistler in Unghvar 
-und Professor Bernath in Ofen, ferner Herrn Karl Hirschbaeh, 
-Verwalter auf der k. k. Staatsdomäne zu Tokay, auch endlich dem 
-reisenden Geologen der k.k. geologischen Reichsanstalt Herrn Heinrich 
-Wolf und Herrn Jos. v. Toi dt aus dem Liptauer Comitat, so wie 
-auch Herrn Cajetan Ferdinand!, k. k. Salzwerksverwalter in 
-Bolechow. 
+Auf diese Anfragen, so wie auf einige bereits früher gestellte, kamen mir zahlreiche Auskünfte zu, für welche ich hier den hochverehrten Herren den verbindlichsten Dank darbringe, den Herren Rektor Friedrich Hazslinszky und Studirenden Johann Kolbay in Eperies, Freiherrn Ludwig v. Fischer und Herrn Apotheker Armin Thaiss zu Gálszécs, k. k. Waldbereiter Anton Pokorny, k. k. Forst-Candidaten Anton Pukáts und k. k. Waldaufseher Wenzel Negedlo in Nagy Berezna, Regalienpächter Ignaz Feuermann in Knyahinya, fortwährend auch Herrn Ingenieur Kistler in Unghvár und Professor Bernáth in Ofen, ferner Herrn Karl Hirschbach, Verwalter auf der k. k. Staatsdomäne zu Tokay, auch endlich dem reisenden Geologen der k. k. geologischen Reichsanstalt Herrn Heinrich Wolf und Herrn Jos. v. Toldt aus dem Liptauer Comitat, so wie auch Herrn Cajetan Ferdinandi, k. k. Salzwerksverwalter in Bolechow.
 
-Ich freue mich den sämmtlichen hochgeehrten Herren hier für 
-Ihr freundliches Wohlwollen meinen innigsten Dank darzubringen, 
-da es mich in den Stand setzt den Versuch zu wagen, über diese 
-denkwürdige Erscheinung ein mehr zusammenhängendes Bild dar- 
-zubringen, als es zuerst möglich gewesen war. 
+Ich freue mich den sämmtlichen hochgeehrten Herren hier für Ihr freundliches Wohlwollen meinen innigsten Dank darzubringen, da es mich in den Stand setzt den Versuch zu wagen, über diese denkwürdige Erscheinung ein mehr zusammenhängendes Bild darzubringen, als es zuerst möglich gewesen war.
 
-Es liegt in der Natur der Sache, daß die ersten Nachrichten 
-nur allzu summarisch klingen. Es ist dies wohl auch durch den 
-Zustand unserer heutigen Tagespresse bedingt. Die Richtung der 
-Kenntnißnahme ist überhaupt mehr dem "Großen*', dem "Allgemei- 
-nen** zugewendet! Während in der That nur die eigentliche, aus- 
-schließliche Beobachtung immer für alle späteren Betrachtungen die 
-Grundlage darbieten kann, liebt man es so sehr mit etwas mehr 
-Theoretischem selbst unmittelbar während der Darlegung der Beob- 
-achtungen hervorzutreten, als sich mit den Beobachtungen zu begnü- 
-gen oder dieselben rein und für sich aufzusammeln. Freilich sind 
-diejenigen Persönlichkeiten, welchen es gewöhnlich beschieden ist, 
-dergleichen Erscheinungen zu beobachten, gar wenig für diese Ein- 
-drücke vorbereitet, aber doch bleibt das einfache Aufzeichnen der-, 
-selben immer dasjenige, was man namentlich in Schriften aufbewahren 
-sollte, welche wie unsere Sitzungsberichte, den Charakter des Blei- 
-benden bewahren. 
+Es liegt in der Natur der Sache, daß die ersten Nachrichten nur allzu summarisch klingen. Es ist dies wohl auch durch den Zustand unserer heutigen Tagespresse bedingt. Die Richtung der Kenntnißnahme ist überhaupt mehr dem "Großen," dem "Allgemeinen" zugewendet! Während in der Tat nur die eigentliche, ausschließliche Beobachtung immer für alle späteren Betrachtungen die Grundlage darbieten kann, liebt man es so sehr mit etwas mehr Theoretischem selbst unmittelbar während der Darlegung der Beobachtungen hervorzutreten, als sich mit den Beobachtungen zu begnügen oder dieselben rein und für sich aufzusammeln. Freilich sind diejenigen Persönlichkeiten, welchen es gewöhnlich beschieden ist, dergleichen Erscheinungen zu beobachten, gar wenig für diese Eindrücke vorbereitet, aber doch bleibt das einfache Aufzeichnen derselben immer dasjenige, was man namentlich in Schriften aufbewahren sollte, welche wie unsere Sitzungsberichte, den Charakter des Bleibenden bewahren.
 
-Gs ist wahr, von manchen Meteorsteinfälien bringen namentlich 
-ostindische, amerikanische, und auch wohl hin und wieder europaische 
-Blätter dem Tage entsprechend in das Einzelne gehende Berichte. 
-Für uns selbst bleibt immer der Bericht über den Meteorsteinfall von 
-Stannern am 22. Mai 1808 durch die Herren v. Schreibers und 
-V. Widmanstatten eine höchst werthvolle Erinnerung. Aber 
-selbst jetzt noch, eigentlich jetzt mehr als je, wo doch die Kenntniß 
-der ganzen Classe von Erscheinungen wächst, wird es immer wün- 
-achenswerther, neue» aber immer die unmittelbarsten Beobachtungen 
-aufzubewahren. 
+Es ist wahr, von manchen Meteorsteinfällen bringen namentlich ostindische, amerikanische, und auch wohl hin und wieder europäische Blätter dem Tage entsprechend in das Einzelne gehende Berichte. Für uns selbst bleibt immer der Bericht über den Meteorsteinfall von Stannern am 22. Mai 1808 durch die Herren v. Schreibers und v. Widmanstätten eine höchst wertvolle Erinnerung. Aber selbst jetzt noch, eigentlich jetzt mehr als je, wo doch die Kenntniß der ganzen Classe von Erscheinungen wächst, wird es immer wünschenswerter, neue, aber immer die unmittelbarsten Beobachtungen aufzubewahren.
 
-In dem an den Herrn Tavernicus abgestatteten Berichte sind 
-2war Augen«- und Ohrenzeugen namentlich aufgeführt, aber nicht 
-ihre individuellen Aussagen, sondern nur eine Gesammt-Angabe der 
-aufeinander folgenden Erscheinungen. Keiner der Genannten ist Ge- 
-währsmann für die eine oder die andere Thatsache, gewiß hat keiner 
-derselben irgend eine Angabe selbstständig zu Protokoll gegeben. 
-Und doch ist dies jedesmal die allergünstigste Form zur Aufbewahrung 
-der Aussagen, wenn ein 'Einzelner seine Wahrnehmung im strengsten 
-Sinne individuell abgibt, und sodann jeder der Andern auch seine 
-Übereinstimmung, oder seine abweichenden Eindrucke, oder seine 
-Zusätze, ebenfalls mit seiner eigenen festen Üßerzeugung darzulegen 
-eingeladen wird. Dies war es, was ich durch meine Einladungen zu 
-ergänzen wünschte, und was mir auch nach vielen Bichtungen gelang, 
-und ich werde im Nachfolgenden die Erscheinung in ihren Haupt- 
-Abschnitten verfolgend, jede einzelne Bichtung durch Angaben zu 
-belegen mich bestreben, und zwar: 1. die Erscheinungen im Falle 
-nahe am Fallorte, 2. die Beobachtungen aus größeren Entfernungen. 
+In dem an den Herrn Tavernicus abgestatteten Berichte sind zwar Augen- und Ohrenzeugen namentlich aufgeführt, aber nicht ihre individuellen Aussagen, sondern nur eine Gesammt-Angabe der aufeinander folgenden Erscheinungen. Keiner der Genannten ist Gewährsmann für die eine oder die andere Tatsache, gewiß hat keiner derselben irgend eine Angabe selbstständig zu Protokoll gegeben. Und doch ist dies jedesmal die allergünstigste Form zur Aufbewahrung der Aussagen, wenn ein Einzelner seine Wahrnehmung im strengsten Sinne individuell abgibt, und sodann jeder der Andern auch seine Übereinstimmung, oder seine abweichenden Eindrücke, oder seine Zusätze, ebenfalls mit seiner eigenen festen Überzeugung darzulegen eingeladen wird. Dies war es, was ich durch meine Einladungen zu ergänzen wünschte, und was mir auch nach vielen Richtungen gelang, und ich werde im Nachfolgenden die Erscheinung in ihren Haupt-Abschnitten verfolgend, jede einzelne Richtung durch Angaben zu belegen mich bestreben, und zwar: 1. die Erscheinungen im Falle nahe am Fallorte, 2. die Beobachtungen aus größeren Entfernungen.
 
-L Die Erscheinungen im Falle nahe am Fallorte. 
+## Die Erscheinungen im Falle nahe am Fallorte.
 
-I. Lage, geographiscli and geologisch. NatioBalÜäten. OrtsoameB. 
+### 1. Lage, geographisch und geologisch. Nationalitäten. Ortsnamen.
 
-Der Endpunkt der Bahn auf welcher das Meteor zur Erde 
-gelangte ist durch den Namen des Dorfes Knyahinya hezeicbnet. 
-Obwohl eine größere Anzahl von Meteorsteinen auf einem ansehn- 
-licheren Baume der Umgebung gefallen ist, so genügt doch dieser 
-Punkt für spätere Feststellung sowohl der geographischen Falllinie, 
-als einer astronomischen Orientirung. 
+Der Endpunkt der Bahn auf welcher das Meteor zur Erde gelangte ist durch den Namen des Dorfes Knyahinya bezeichnet. Obwohl eine größere Anzahl von Meteorsteinen auf einem ansehnlicheren Raume der Umgebung gefallen ist, so genügt doch dieser Punkt für spätere Feststellung sowohl der geographischen Falllinie, als einer astronomischen Orientirung.
 
-Das DorfKnyahinya Hegt etwa anderthalb geographische Meilen 
-im Nordnordost von Nagy Berezna, dieses selbst wieder ö«/* geo- 
-graphische Meilen in gleicher NNO. -Richtung von der Comitats- 
-Hauptstadt Unghvär im Unghvärer Comitat des Königreiches Ungarn. 
+Das Dorf Knyahinya liegt etwa anderthalb geographische Meilen im Nordnordost von Nagy Berezna, dieses selbst wieder 6 1/4 geographische Meilen in gleicher NNO.-Richtung von der Comitats-Hauptstadt Unghvár im Unghvárer Comitat des Königreiches Ungarn.
 
 Die ganze durch den Fall vom 9. Juni mit Meteorsteinen uber- 
 säete Gegend, welche auf Seite 6 und 7 im Grundrisse und land- 
