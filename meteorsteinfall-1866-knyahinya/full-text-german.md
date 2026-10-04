@@ -48,7 +48,7 @@ Er ist, wie man von Meteoriten zu sagen pflegt ein "Ganzer Stein," nicht ein Bru
 
 An den schärfsten Kanten ist der Stein hin und wieder abgestossen. Es muß dies vorläufig hinreichen, um zu beurteilen, in welche Abteilung der bisher bekannten Meteorsteine sich dieser neue von Knyahinya bei Berezna unterordnet, und man kann mit ziemlicher Sicherheit schließen, wie dies Herr Direktor Hörnes andeutete, daß er in die Nähe von Parnallee, Assam und andern mit einer marmorirten Farbenzeichnung im Schliffe (marbled appearance), zu ordnen sein wird. Die Eröffnung des Innern durch Entzweischneiden, Schleifen und Poliren, die chemische Analyse endlich, der Metallteile sowohl als der steinigen Masse wird fernere Vergleichungspunkte gewähren, wenn späterhin mehrere Exemplare in den Kreis der Untersuchung gezogen werden. Das eigenthümliche Gewicht des Exemplares fand ich bei 20° R. = 3.520.
 
-[Fig. 1.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-1.png)
+[Fig.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-1.png)
 
 Jedenfalls glaube ich, ist bei der heutigen Mitteilung, welche 
 doch noch sehr den Charakter einer bloß vorläufigen besitzt, so viel 
@@ -109,236 +109,103 @@ Namentlich das Dorf Knyahinya ist weitaus von Ruthenen bewohnt. Entsprechend die
 
 ### 2. Bericht von Herrn A. Pukáts über den Fall.
 
-Eine der ersten meiner specielleren Anfragen war an eine 
-Adresse gerichtet gewesen, in Bezug auf welche ich umgehend 
-erfuhr, daß ihr Träger, der k. k. Forster Adolph Ruttner zu Lyutta 
-nicht mehr am Leben sei. Derselbe war ein Correspondent der k. k. 
-geologischen Reichsanstalt aus dem Jahre 1858, in welchem er 
-unsere reisenden Geologen so wohlwollend aufgenommen hatte, 
-namentlich die Herren Franz Ritter v- Hauer, Freiherrn v. Richt- 
-hofen und A. v. Glos sowie den gegenwärtigen Herrn k. k. Mini- 
-sterialrath Freiherrn v. Hingenau, der sich freundlichst an ersteren 
-angeschlossen hatte. 
+Eine der ersten meiner spezielleren Anfragen war an eine Adresse gerichtet gewesen, in Bezug auf welche ich umgehend erfuhr, daß ihr Träger, der k. k. Förster Adolph Ruttner zu Lyutta nicht mehr am Leben sei. Derselbe war ein Korrespondent der k. k. geologischen Reichsanstalt aus dem Jahre 1858, in welchem er unsere reisenden Geologen so wohlwollend aufgenommen hatte, namentlich die Herren Franz Ritter v. Hauer, Freiherrn v. Richthofen und A. v. Glos sowie den gegenwärtigen Herrn k. k. Ministerialrat Freiherrn v. Hingenau, der sich freundlichst an ersteren angeschlossen hatte.
 
-Aber sein Schwiegersohn lebte noch, und das war eben der 
-k. k. Waldbereiter Herr Anton Pokorny in Nagy Berezna, an 
-welchen ich mich, wenn auch einige Tage später, ebenfalls um Aus- 
-köuilte gewendet hatte. Er gab nun dem ihm im Dienste zugetheilteu 
-k. k. Forstcandidaten Herrn Anton Puk^ts den Auftrag, in Bezug 
-auf die Erscheinung an mich zu berichten. 
+Aber sein Schwiegersohn lebte noch, und das war eben der k. k. Waldbereiter Herr Anton Pokorny in Nagy Berezna, an welchen ich mich, wenn auch einige Tage später, ebenfalls um Auskünfte gewendet hatte. Er gab nun dem ihm im Dienste zugeteilten k. k. Forstkandidaten Herrn Anton Pukáts den Auftrag, in Bezug auf die Erscheinung an mich zu berichten.
 
-Herrn Pukäts bin ich also für den ersten vollkommen indivi- 
-duellen Bericht welchen ich hier, theils wörtlich, theils etwas abge- 
-kürzt wiedergebe, zu größtem Danke verpflichtet. 
+[Fig. 1.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-2.png)
 
-Zur genaueren Orientirung gab Herr Pukäts in Fig. 1 und 
-Fig. 2 den Plan sowohl, als auch eine übersichtliche landschaftliehe 
+Herrn Pukáts bin ich also für den ersten vollkommen individuellen Bericht welchen ich hier, teils wörtlich, teils etwas abgekürzt wiedergebe, zu größtem Danke verpflichtet.
 
+Zur genaueren Orientirung gab Herr Pukáts in Fig. 1 und Fig. 2 den Plan sowohl, als auch eine übersichtliche landschaftliche Darstellung der Oberfläche. Sie erläutern sich gegenseitig. In Bezug auf Fig. 2 muß ich bemerken, daß die entfernteren Umrisse genau der freundlichst eingesandten Skizze entsprechen, daß aber der Vorgrund mehr nur als Andeutung der Lage gelten kann, da er doch im Originale nur mit wenigen Strichen vorlag.
 
-Grenze ztcischen dem Zempliner und Unghvdrer Comitat, 
+"Am 9. des Monats Juni war ich im Holzschlage auf dem Hügel Cseresnyovati, östlich nahe an Nagy Berezna beschäftigt, auf dem in den beiden Skizzen durch _A_ bezeichneten Punkte, der auf dem Nordabhange des Hügels liegt, also hier in der Ansicht Fig. 2 durch denselben Hügel verdeckt wird."
 
----._._._ Eingeschlossener Raum des MeteorsieinfaHes am 9. Juni 1866, 
-D Beiläufige Stelle der grösseren aufgefundenen Stücke. Ziffern, Gewicht 
+[Fig. 2.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-3.png)
 
-in Pfunden, 
-D ? Problematische Stelle am Hügel Uorbek, 
-Darstellung der Oberfläche. Sie erläutern sich gegenseitig. In Bezug 
-auf Fig. 2 muß ich bemerken, daß die entfernteren Umrisse genau 
-der freundlichst eingesandten Skizze entsprechen, daß aber der Yor^ 
-grund mehr nur als Andeutung der Lage gelten kann, da er doch im 
-Originale nur mit wenigen Strichen vorlag. 
+**A.** _Der Punkt A, von welchem aus Herr Pukáts den Fall beobachtete, liegt nicht auf der Kante sondern am Abhange des Hügels Cseresnyovati gegen Norden zu, welchen man also hier auf der Ansicht nicht sehen kann, weil er durch den Hügel selbst gedeckt ist._
 
-,,Am 9. des Monats Juni war ich im Holzschlage auf dem Hügel 
-Cseresnyovati, östlich nahe an Nagy Berezna beschäftigt, auf dem in 
-den beiden Skizzen durch A bezeichneten Punkte, der auf dem Nord- 
-abhänge des Hügels liegt, also hier in der Ansicht Fig. 2 durch 
-denselben Hügel verdeckt wird. 
+**B.** _Auch hier ist der Punkt, auf welchen der grosse Stein fiel, die Wiese Mlaka durch den Abhang des vorliegenden Javornikberges gedeckt. Die Wiese liegt unterhalb des Punktes B auf dem südlichen Abhange des nördlichen Bergzuges, welcher mit dem Sztyinskafelsen zusammenhängt._
 
-A* Der Punkt A, von welchem aus Herr Pukd Is den Fall beobach- 
-tete, liegt nicht auf der Kante sondern am Abhänge des Hügels Cseresnifo- 
-vati gegen Norden zu, welchen man also hier auf der Ansicht nicht sehen 
-kanny weil er durch den Hit gel selbst gedeckt ist, 
+"Bei drückender Hitze hatte ich in der Zeit von 3 bis nach 4 1/2 Uhr den Abschluß meiner Obliegenheit in der Bezeichnung der Holz-Klaftern begonnen, als ich und die umstehenden Waldaufseher und Handlanger einen scharfen weithintönenden Knall hörten und noch zwei darauffolgende immer schwächere, die meiner Ansicht nach aber blos das in den Bergen wiedertönende Echo des ersten waren. Ich blickte gegen den Himmel, der mit Ausnahme einer kleinen, ganz dem gewöhnlichen von der Nähe aus gesehenen Nebel gleichenden Wolke, die sich über dem 800-1000 Fuß relativ hohen kegelförmigen Berge Knyahinyicza ausbreitete, klar und wolkenlos war, und ich glaubte Anfangs dieselbe habe sich entladen und in den Berg eingeschlagen."
 
-B« Auch hier ist der Punkt, auf welchen der grosse Stein fiel, die 
-Wiese Mlaka durch den Abhang des vorliegenden Janornikberges gedeckt. 
-Die Wiese liegt unterhalb des Punktes D auf dem südlichen Abhänge des 
-nördlichen Bergzuges, welcher mit dem Sxtginskaf eisen zusammenhängt. 
+"Meine Uhr zeigte 4 Minuten vor 5 Uhr. Ein Handlanger behauptete auch etwas Blitzartiges wahrgenommen zu haben, und machte mich auf einen ober der Wolke befindlichen Rauch aufmerksam; es glich auch wirklich einem Streifen bläulichen Rauches, der für die Wolke gleichsam einen Schweif bildend, die Richtung von NNO. gegen SSW. hatte und unter einem Winkel von etwa 30 Grad auf die Horizontale stand."
 
-Bei drückender Hitze hatte ich in der Zeit von 3 bis nach 4'/, 
-Uhr den Abschluß meiner Obliegenheit in der Bezeichnung der Holz- 
-Klaftern begonnen, als ich und die umstehenden Waldaufseher und 
-Handlanger einen scharfen weithintönenden Knall horten und noch 
-zwei darauiTolgende immer schwächere, die meiner Ansicht nach 
-aber blos. das in den Bergen wiedertönende Echo des ersten waren. 
-Ich blickte gegen den Himmel, der mit Ausnahme einer kleinen, ganz 
-dem gewöhnlichen von der Nähe aus gesehenen Nebel gleichenden 
-Wolke, die sich über dem 800 --- 1000 Fuß relativ hohen kegel- 
-förmigen Berge Knyahinyicza ausbreitete, klar und wolkenlos war, 
-und ich glaubte Anfangs dieselbe habe sich entladen und in den Berg 
-eingeschlagen. 
+Nach den freundlichst mitgeteilten Skizzen Fig. 3 und Fig. 4, glaube ich dies so verstehen zu sollen, daß Fig. 3 die Ansicht im (theoretischen) Grundrisse gibt, während Fig. 4 die Erscheinung auf die Beobachtungsebene projizirt, und also den Höhenwinkel anschaulich zu machen bestimmt ist.
 
-Meine Uhr zeigte 4 Minuten vor S Uhr. Ein Handlanger behaup- 
-tete auch etwas Blitzartiges wahrgenommen zu haben, und machte 
-mich auf einen ober der Wolke befindlichen Rauch aufmerksam; es 
-glich auch wirklich einem Streifen bläulichen Rauches, der für die 
-Wolke gleichsam einen Schweif bildend, die Richtung von NNO. 
-gegen SSW. hatte und unter einem Winkel von etwa 30 Grad auf 
-die Horizontale stand. *< 
+[Fig. 3.]()
 
-Nach den freundlichst' mitgetheilten Skizzen Fig. 3 und Fig. 4, 
-glaube ich dies so verstehen zu sollen, daß Fig. 3 die Ansicht im 
-(theoretischen) Grundrisse gibt, während Fig. 4 die Erscheinung 
-auf die Beobachtungsebene projicirt, und also den Höheuwinkel an- 
-schaulich zu machen bestimmt ist. 
+"Nach Verlauf von 3/4 einer Minute fing es an in der Wolke wie in einem Dampfkessel zu kochen und zu brausen, das sich in ein Rollen gleich einem schweren Donner auflöste, schwach, stärker und wieder schwach abfallend, und gegen eine Minute dauerte. Die Wolke, die sich schon während des Rollens bewegte, kam auf uns mit wachsender Geschwindigkeit, mit stets größerem Sehwinkel, also näher, und verschwand scheinbar in nordsüdlicher Richtung westlich vom Beobachtungsorte über Nagy Berezna ziehend nach Verlauf von 4 bis 5 Minuten immer kleiner werdend aus dem Gesichtskreise."
 
-"Nach Verlauf von «/^ einer Minute fing es an 
-in der Wolke wie m einem Dampfkessel zu kochen 
-und zu brausen, das sich in ein Rollen gleich einem 
-schweren Donner auflöste, schwach, stärker und 
-wieder schwach abfallend, und gegen eine Minute 
-dauerte. Die Wolke, die sich schon wahrend des 
+### 3. Mitteilungen von Herrn A. Pokorny.
 
-[Fig. 2.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-2.png)
+Herr k. k. Waldbereiter A. Pokorny sandte folgende Aussagen, freundlichst aufgesammelt, namentlich um einige bis dahin unsicher bestimmte Fragen beantwortet zu erhalten.
 
-[Fig. 3.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-3.png)
+#### 1\. "Beobachtungen des Knyahinyaer Regalien-Pächters Ignaz Feuermann über das am 9. Juni zwischen 4 und 5 Uhr in Knyahinya vorgefallene Naturereigniß."
 
-Rollens bewegte, kam auf uns mit wachsender Geschwindigkeit, mit 
-stets größerem Sehwinkel, also näher, und verschwand scheinbar in 
-nordsüdlicher Richtung westlich vom Beobachtungsorte über Nagy 
-Berezna ziehend nach Verlauf von 4 bis 5 Minuten immer kleiner 
-werdend aus dem Gesichtskreise.'' 
+"Es war zwischen 4 und 5 Uhr, als ich vor dem Wirthshausgebäude mit meiner Frau der Andacht oblag, als plötzlich ein starker, einem Kanonenschuß ähnlicher Krach in der Richtung gegen Nordost ertönte, worüber ich mit meiner Frau erschrocken bin und ins Vorhaus vor der Thür mich zurückgezogen habe. Hierauf, gleich nach diesem außerordentlichen Krach folgte nun ein starkes Rollen, dann Kochen, so wie das Wasser kocht, welches beiläufig 3-4 Minuten gedauert hat. Über dieses Rollen bin ich heraus ins Freie, und in dem Augenblicke ist einer von diesen Meteorsteinen 6-7 Schritt vor meinen Augen, in schiefer Richtung von Nordost zur Erde gefallen, durch die Äste eines beim Wirthshausgebäude stehenden Zwetschkenbaumes, wobei ein Ästchen von 1/4 Zoll Durchmesser abgebrochen wurde."
 
-3. lUtheilmgen von Herrn A. Pokorny. 
+"Ich habe mir Muth gefaßt, und nach einer Weile diesen Stein aufgehoben, der wie schon bekannt, von einer glasartigen schwarzen Farbe, nach Schwefel so stark gerochen hat, daß ich diesen Geruch noch nach drei Tagen von meiner Hand nicht abwaschen konnte."
 
-Herr k. k. Waldbereiter A. Pokorny sandte folgende Aus- 
-sagen, freundlichst aufgesammelt, namentlich um einige bis dahin 
-unsicher bestimmte Fragen beantwortet zu erhalten. 
+"Frage. Wollen Sie uns angeben, ob der Stein heiß oder kalt war?"
 
-1. "Beobachtungen des Knyahinyaer Regalien- 
-Pächters Ignaz Feuermann über das am 9. Juni zwischen 4 
-und 5 Uhr in Knyahinya vorgefallene Naturereigniß. 
+"Antwort. Dieser Stein war lauwarm, gleich den von der Sonne erwärmten."
 
-Es war zwischen 4 und 5 Uhr, als ich vor dem Wirthshaus- 
-gebäude mit meiner Frau der Andacht oblag, als plötzlich ein starker, 
-einem Kanonenschuß ähnlicher Krach in der Richtung gegen Nord- 
-ost ertonte, worüber ich mit meiner Frau erschrocken bin und ins 
-Vorhaus vor der Thür mich zurückgezogen habe. Hierauf, gleich 
-nach diesem außerordentlichen Krach folgte nun ein starkes Rollen, 
-dann Kochen, so wie das Wasser kocht, welches beiläufig 3---4 Mi- 
-nuten gedauert hat. Über dieses Rollen bin ich heraus ins Freie, und 
-in dem Augenblicke ist einer von diesen Meteorsteinen 6 --- 7 Schritt 
-vor meinen Augen, in schiefer Richtung von Nordost zur Erde ge- 
-fallen, durch die Äste eines beim Wirthshausgebäude stehenden 
-Zwetschkenbaumes, wobei ein Ästchen von 1/4 Zoll Durchmesser 
-abgebrochen wurde. 
+"Fr. Haben Sie die Wolke gleichzeitig oder nach dem Knalle oder später am Himmel gesehen?"
 
-Ich habe mir Muth gefaßt, und nach einer Weile diesen Stein 
-aufgehoben, der wie schon, bekannt, von einer glasartigen schwarzen 
-Farbe, nach Schwefel so stark gerochen hat, daß ich diesen Geruch 
-noch nach drei Tagen von meiner Hand nicht abwaschen konnte. 
+"Antw. Ich habe nach dem Knalle hier in dieser Richtung (nach Nordost zeigend) ein kleines Wölkchen, so groß und in der Form wie ein Faß gesehen, von welcher Wolke ein sehr starker Rauch entströmte. Dieser Rauch hat sich vorerst nach Norden gezogen, und ist mit dieser Wolke mit einer großen Schnelligkeit gegen Süden verschwunden. Dieses habe ich nach bereits erfolgtem Ruhestande in der Atmosphäre wahrgenommen."
 
-Frage. Wollen Sie uns angeben, ob der Stein heiß oder kalt 
-war? 
+"Fr. Haben Sie am Firmamente eine Feuerkugel gesehen?"
 
-Antwort. Dieser Stein war lauwarm, gleich den von der Sonne 
-erwärmten. 
+"Antw. Nein."
 
-Fr. Haben Sie die Wolke gleichzeitig oder nach dem Knalle 
-oder später am Himmel gesehen? 
+"Fr. Haben Sie nichts in Erfahrung gebracht, ob sonst Jemand eine solche niederfallen gesehen?"
 
-Antw. Ich habe nach dem Knalle hier in dieser Richtung (nach 
-Nordost zeigend) ein kleines Wölkehen, so groß und in der Form 
+"Antw. Ich habe mich erkundigt, aber bis jetzt Niemanden gefunden, der eine solche gesehen hätte."
 
+"Fr. Haben Sie nicht etwas Feuerartiges, als Blitzen, Leuchten oder einen Feuerstrahl gesehen?"
 
-484 r. Utidinger. 
+"Antw. Zugleich mit dem Krache ein Blitzen, und darauf erfolgte das Rollen."
 
-wie ein Faß gesehen » von welcher Wolke ein sehr starker Rauch 
-entströmte. Dieser Rauch hat sich vorerst nach Norden gezogen, 
-und ist mit dieser Wolke mit einer großen Schnelligkeit gegen Süden 
-verschwunden. Dieses habe ich nach bereits erfolgtem Ruhestände 
-in der Atmosphäre wahrgenommen. 
+"Fr. Hat irgend Jemand einen Stein sogleich nach dem Falle aufgehoben?"
 
-Fr. Haben Sie am Firmamente eine Feuerkugel gesehen? 
+"Antw. Ich weiß bis jetzt Niemanden."
 
-Antw. Nein. 
+Knyahinya, am 30. August 1866.
 
-Fr. Haben Sie nichts in Erfahrung gebracht, ob sonst Jemand 
-eine solche niederfallen gesehen? 
+Zeuge: Pokorny m/p.
 
-Antw. Ich habe mich erkundigt, aber bis jetzt Niemanden ge- 
-funden, der eine solche gesehen hätte. 
+Als Zeuge: Salomon Frieder m/p.
 
-Fr. Haben Sie nicht etwas Feuerartiges, als Blitzen, I^ieuehten 
-oder einen Feuerstrahl gesehen? 
+Ignaz Feuermann. Namensfertiger Negedlo m/p., k. k. Waldaufseher.
 
-Antw. Zugleich mit dem Krache ein Blitzen, und darauf erfolgte 
-das Rollen. 
+#### 2\. Beobachtungen des Kurtyak Mihaylo, Haus- und Grundbesitzers in Sztricsava über das Naturereigniß von Sztricsava aus.
 
-Fr. Hat irgend Jemand einen Stein sogleich nach dem Falle 
-aufgehoben? 
+"Ich habe an diesem Tage auf dem Felde meine Ochsen geweidet, als plötzlich am Firmamente ein starker Knall hörbar war, und vor meinen Augen auf zwei Schritt Entfernung ein schwarzer Stein mit einem Blitzen zur Erde niederfiel, worüber ich sehr stark erschrocken, aber nach einer Weile mich wieder erholte, und diesen herabgefallenen Gegenstand besichtigte, der nun wie gesagt, der obige Stein war, den ich aufgehoben, und der erhitzt war als wenn man ihn aus einem geheizten Ofen herausgenommen hätte. Das Gras an dem Orte, wo er niederfiel, war verbrannt und schwarz geworden, somit mußte der Stein als er herabfiel, glühend heiß gewesen sein."
 
-Antw. Ich weiß bis jetzt Niemanden. 
-Knyahinya, am 30. August 1866. 
-Zeuge: Pokorny m/p. Igiiaz Feuermann. 
+"Fr. Wie groß war der Stein, den Sie aufgehoben haben?"
 
-Als Zeuge: Salomon Frieder m/p. Namensfertfger 
+"Antw. Beiläufig mit dem Gewichte von 1/2 Pfund, und der Größe eines kleinen Hühnereies, eckig."
 
-Negedlo m/p., 
+"Fr. Haben Sie eine Feuerkugel am Firmament gesehen?"
 
-k. k. Waldaufseher. 
+"Antw. Nein, auch meines Wissens Niemand sonst."
 
-2. Beobachtungen des Kurtyak Mihaylo, Haus- und 
-Grundbesitzers in Sztricsava über das Naturereigniß von Sztri<* 
-csava aus. 
+"Fr. Wie groß war die Wolke und was haben Sie sonst noch an derselben wahrgenommen?"
 
-"Ich habe an diesem Tage auf dem Felde meine Ochsen gewei- 
-det, als plötzlich am Firmamente ein starker Knall hörbar war, und 
-vor meinen Augen auf zwei Schritt Entfernung ein schwarzer Stein 
-mit einem Blitzen zur Erde niederfiel, worüber ich sehr .stark er- 
-schrocken, aber nach einer Weile mich wieder erholte, und diesen 
-herabgefallenen Gegenstand besichtigte, der nun wie gesagt, der 
-obige Stein war, den ich aufgehoben, und der erhitzt war als wenn 
-man ihn aus einem geheizten Ofen herausgenommen hätte. Das 
-Gras an dem Orte, wo er niederfiel, war verbrannt und schwarz 
-geworden, somit mußte der Stein als er herabfiel, glühend heiß 
-gewesen sein. 
+"Antw. Die Wolke in der Richtung gegen Ulics (nach Nordwest) hatte die Größe von einem großen Wagenrad. Ich habe von derselben einen großen Rauch entströmen gesehen, und diese Wolke ist auch nach dem Knalle kurz darauf gegen Unghvár (gegen Südsüdwest) zu verschwunden."
 
+"Dieses alles habe ich nach dem Knalle und dem Donnern beobachtet."
 
-Der Meteorstein fall am 9. Jiuii 1866 bei Knyahinya. 485 
+Berezna, 1. September 1866.
 
-Fr. Wie groß war der Stein, den Sie aufgehoben haben? 
-Antw. Beiläufig mit dem Gewichte von y, Pfund, und der 
-Größe eines kleinen Hühnereies, eckig. 
+In unserer Gegenwart: Johann Prokul m/p. k. k. Finanzconcipist.
 
-Fr. Haben Sie eine Feuerkugel am Firmament gesehen? 
-Antw. Nein, auch meines Wissens Niemand sonst. 
-Fr. Wie groß war die Wolke und was haben Sie sonst noch an 
-derselben wahrgenommen? 
+Pokorny m/p., Waldbereiter.
 
-Antw. Die Wolke in der Richtung gegen Ulics (nach Nordwest) 
-hatte die Größe von einem großen Wagenrad. Ich habe von der- 
-selben einen großen Rauch entströmen gesehen, und diese Wolke 
-ist auch nach dem Knalle kurz darauf gegen Unghvär (gegen Süd- 
-sudwest) zu verschwunden. 
+† Kurtyak Mihaylo. Namensfertiger Negedlo m/p., Waldaufseher.
 
-Dieses alles habe ich nach dem Knalle und dem Donnern 
-beobachtet 
-
-Berezna, 1. September 1866. 
-
-In unserer Gegenwart : +Kurtyak Mihaylo. 
-
-Johann Pro kul m/p. Namens fertiger 
-
-k. k. FinanscoDeipiat N e g e d 1 0 m/p,, 
-
-Pokorny m/p., Waldaufseher. 
-
-Waldbereker. 
-
-3. Beobachtungen des Herrn Franz Weisz, k. k. 
-Finanzconcipisten bei der k. k. Finanz-Bezirks-Direction in Unghvar, 
-von Nagy Berezna aus. 
+#### 3\. Beobachtungen des Herrn Franz Weisz, k. k. Finanzconcipisten bei der k. k. Finanz-Bezirks-Direktion in Unghvár, von Nagy Berezna aus.
 
 Am 9. Juni 1866 war ich aus Anlaß amtlicher Dienstverrich- 
 tungen in Nagy Berezna anwesend. Ich stasd zwischen 4 und 5 Uhr 
@@ -354,10 +221,6 @@ jedoch etwas mattere folgten, und welche in ein donnerähnliches,
 jedoch nicht dumpfes Donnern, sondern rollendes Getöse über- 
 gingen, welches sich wieder in ein mit Schwattern verbundenes 
 Getöse auflöste, beinahe ähnlich dem Geräusche, wenn man aus 
-
-
-486 . V. Htidiiiger. 
-
 einem Locomotive Dampf von unten ausläßt, und dieses mit einem 
 Schwattern ähnlieh dem, welches sich beim starken Kochen von 
 Wäsche- oder Pflaumenmus u. dgl. in einem Kessel ergibt, ver- 
