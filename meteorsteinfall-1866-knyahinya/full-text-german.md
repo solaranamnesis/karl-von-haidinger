@@ -69,39 +69,15 @@ Eben erhalte ich von meinem hochverehrten Freunde Herrn A. Daubrée in Paris ein
 
 (Mit 3 Tafeln.) 
 
-Vorwort. Quellen.
+## Vorwort. Quellen.
 
-Ich schließe meinen heutigen Bericht an denjenigen an, welchen 
-ich als Torläufiges Ergebniß am 12. Juli der hochverehrten Classe 
-vorzulegen die Ehre hatte. 
+Ich schließe meinen heutigen Bericht an denjenigen an, welchen ich als vorläufiges Ergebniß am 12. Juli der hochverehrten Classe vorzulegen die Ehre hatte.
 
-Zu spät für jene Mittheilung, hatte ich durch meinen hochver- 
-ehrten Freund, Herrn k. k. Bergrath Franz Bitter v. Hauer einen 
-Bericht von Herrn Franz Ki stier erhalten, welcher die freundliche 
-Sendung eines Steines von Hy^ Loth an die k. k. geologische 
-Beichsanstalt begleitete, so M'ie ein an die letztere durch Herrn k. k. 
-Ministerialratb Freiherrn v. Hin genau freundlichst übersendetes 
-Schreiben des Herrn Bittmeisters in der Armee und Gutsbesitzers, 
-Freiherrn Ludwig v. Fischer zu Gilsz^cs im Zempliner Comitate. 
-Über diese berichtete Herr v. Hauer auch in der Sitzung der k. k. 
-geologischen Reichsanstalt am 24. Juli. 
+Zu spät für jene Mitteilung, hatte ich durch meinen hochverehrten Freund, Herrn k. k. Bergrat Franz Ritter v. Hauer einen Bericht von Herrn Franz Kistler erhalten, welcher die freundliche Sendung eines Steines von 14 1/4 Loth an die k. k. geologische Reichsanstalt begleitete, so wie ein an die letztere durch Herrn k. k. Ministerialrat Freiherrn v. Hingenau freundlichst übersendetes Schreiben des Herrn Rittmeisters in der Armee und Gutsbesitzers, Freiherrn Ludwig v. Fischer zu Gálszécs im Zempliner Comitate. Über diese berichtete Herr v. Hauer auch in der Sitzung der k. k. geologischen Reichsanstalt am 24. Juli.
 
-Mir selbst waren ebenfalls bald darauf neuere Nachrichten 
-zugekommen. Unter andern verdanke ich Herrn Professor Johann 
-Bernath in Ofen die Übersetzung des Berichtes, aus Unghvar durch 
-Herrn Comitats-Oberarzt Dr. v. Zsiro an Herrn Tavernicus Baron 
-V. Sennyey erstattet. Herr Prof. Bernäth hatte sie freundlichst 
-auf Veranlassung unseres hochverehrten Herrn Collegen Directors 
-M. Hörn es besorgt. 
+Mir selbst waren ebenfalls bald darauf neuere Nachrichten zugekommen. Unter andern verdanke ich Herrn Professor Johann Bernáth in Ofen die Übersetzung des Berichtes, aus Unghvár durch Herrn Comitats-Oberarzt Dr. v. Zsiro an Herrn Tavernicus Baron v. Sennyey erstattet. Herr Prof. Bernáth hatte sie freundlichst auf Veranlassung unseres hochverehrten Herrn Kollegen Direktors M. Hörnes besorgt.
 
-Am 16. August waren die einzelnen Abdrucke meines Berichtes 
-vom 12. Juli fertig. Ich säumte nicht, dieselben den beständigen 
-meteoritologischen Freunden, dann aber auch hochverehrten Persön- 
-lichkeiten namentlich in der Umgebung des Falles zu übersenden, mit 
-der Bitte, möglichst unmittelbare Beobachtungen freundlichst mit- 
-
-theiien zu Müllen, als ErganzuiigiMi oder genauere Darstellung der 
-bisher bekannt gemachten. 
+Am 16. August waren die einzelnen Abdrücke meines Berichtes vom 12. Juli fertig. Ich säumte nicht, dieselben den beständigen meteoritologischen Freunden, dann aber auch hochverehrten Persönlichkeiten namentlich in der Umgebung des Falles zu übersenden, mit der Bitte, möglichst unmittelbare Beobachtungen freundlichst mitteilen zu wollen, als Ergänzungen oder genauere Darstellung der bisher bekannt gemachten.
 
 Auf diese Anfragen, so wie auf einige bereits früher gestellte, 
 kamen mir zahlreiche Auskünfte zu, für welche ich hier den hoch- 
