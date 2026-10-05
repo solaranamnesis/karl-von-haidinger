@@ -207,51 +207,17 @@ Pokorny m/p., Waldbereiter.
 
 #### 3\. Beobachtungen des Herrn Franz Weisz, k. k. Finanzconcipisten bei der k. k. Finanz-Bezirks-Direktion in Unghvár, von Nagy Berezna aus.
 
-Am 9. Juni 1866 war ich aus Anlaß amtlicher Dienstverrich- 
-tungen in Nagy Berezna anwesend. Ich stasd zwischen 4 und 5 Uhr 
-mit dem k. k. Steueramtsassistenten Brattusiewicz im Hofe der 
-k. L Waldbereiters-Wohnung, in welchem Gebäude auch das k. k. 
-Steueramt untergebracht ist, unmittelbar vor dem letzteren, im Ge- 
-spräch begriffen. Unweit davon stand der Amtsdiener Weigel. Da 
-auf einmal, ungefähr einige Minuten vor 5 Uhr, ohne daß man bei 
-so heiterem Himmel ein Gewitter, oder sonst eine Erscheinung ver- 
-muthet hätte, ertönte am Horizonte ein dumpfer Knall, ganz ähnlieh 
-dem eines starken Kanonenschusses, dem unmittelbar zwei gleiche, 
-jedoch etwas mattere folgten, und welche in ein donnerähnliches, 
-jedoch nicht dumpfes Donnern, sondern rollendes Getöse über- 
-gingen, welches sich wieder in ein mit Schwattern verbundenes 
-Getöse auflöste, beinahe ähnlich dem Geräusche, wenn man aus 
-einem Locomotive Dampf von unten ausläßt, und dieses mit einem 
-Schwattern ähnlieh dem, welches sich beim starken Kochen von 
-Wäsche- oder Pflaumenmus u. dgl. in einem Kessel ergibt, ver- 
-bunden wäre. 
+Am 9. Juni 1866 war ich aus Anlaß amtlicher Dienstverrichtungen in Nagy Berezna anwesend. Ich stand zwischen 4 und 5 Uhr mit dem k. k. Steueramtsassistenten Brattusiewicz im Hofe der k. k. Waldbereiters-Wohnung, in welchem Gebäude auch das k. k. Steueramt untergebracht ist, unmittelbar vor dem letzteren, im Gespräch begriffen. Unweit davon stand der Amtsdiener Weigel. Da auf einmal, ungefähr einige Minuten vor 5 Uhr, ohne daß man bei so heiterem Himmel ein Gewitter, oder sonst eine Erscheinung vermutet hätte, ertönte am Horizonte ein dumpfer Knall, ganz ähnlich dem eines starken Kanonenschusses, dem unmittelbar zwei gleiche, jedoch etwas mattere folgten, und welche in ein donnerähnliches, jedoch nicht dumpfes Donnern, sondern rollendes Getöse übergingen, welches sich wieder in ein mit Schwattern verbundenes Getöse auflöste, beinahe ähnlich dem Geräusche, wenn man aus einem Locomotive Dampf von unten ausläßt, und dieses mit einem Schwattern ähnlich dem, welches sich beim starken Kochen von Wäsche- oder Pflaumenmus u. dgl. in einem Kessel ergibt, verbunden wäre.
 
-Gleich auf den ersten Knall blickten wir gegen Himmel, und 
-sahen in der Gegend des Getöses, etwas nordöstlich, wie ich glaube, 
-blos eine kleine längliche, vielleicht wenige Klafter messende dunkle 
-gewitterähnliche Wolke, und sich gleichsam verlierenden Rauch, und 
-spurte man auch etwas Schwefelgeruch, auf welchen ich namentlich 
-durch den im Steueramtslocale arbeitenden k. k. Steuereinnehmer 
-Kortkovics aufmerksam gemacht wurde, zu welchem ich mich 
-begab, als das ganze Getöse schon vorüber war, und bemerkte ieb, 
-daß man im vorerwähnten Locale, dessen zwei Fenster nach Norden, 
-also in der Richtung des stattgehabten Ereignisses gehen, mehr 
-spurte als im Freien. --- Dieses sind meines guten Erinnerns nach 
-meine gemachten, genau dargestellten Beobachtungen. 
-Unghvär, 30. August 1866. 
+Gleich auf den ersten Knall blickten wir gegen Himmel, und sahen in der Gegend des Getöses, etwas nordöstlich, wie ich glaube, blos eine kleine längliche, vielleicht wenige Klafter messende dunkle gewitterähnliche Wolke, und sich gleichsam verlierenden Rauch, und spürte man auch etwas Schwefelgeruch, auf welchen ich namentlich durch den im Steueramtslokale arbeitenden k. k. Steuereinnehmer Kortkovics aufmerksam gemacht wurde, zu welchem ich mich begab, als das ganze Getöse schon vorüber war, und bemerkte ich, daß man im vorerwähnten Lokale, dessen zwei Fenster nach Norden, also in der Richtung des stattgehabten Ereignisses gehen, mehr spürte als im Freien. --- Dieses sind meines guten Erinnerns nach meine gemachten, genau dargestellten Beobachtungen.
 
-Franz Weisz m/p., 
+Unghvár, 30. August 1866.
 
-k. k. FiiiRDzconcipisi bei df r k. k. Finnnx- 
-Bezirks-Directipn in Uiighvnr. 
+Franz Weisz m/p., k. k. Finanzconcipist bei der k. k. Finanz-Bezirks-Direktion in Unghvár.
 
-4. Beobachtung des Herrn Raimund Brattusiewicz, 
-kais. königl. Steueramts-Assistenten zu Nugy Berezna, von Nagy 
-Berezna aus. 
+#### 4\. Beobachtung des Herrn Raimund Brattusiewicz, kais. königl. Steueramts-Assistenten zu Nagy Berezna, von Nagy Berezna aus.
 
-"Himmel rein, wolkenlos, kein leises Lüftchen, nur gegen Süden 
-am Horizonte kleine Wolkenschichten, die sich gerade gegen Westen 
-hinzogen. 
+"Himmel rein, wolkenlos, kein leises Lüftchen, nur gegen Süden am Horizonte kleine Wolkenschichten, die sich gerade gegen Westen hinzogen."
 
 Vor t/aS Uhr trat aus dem azurblauen Firmamente ein unan- 
 sehnliches weißes, mit schwarzen Punkten versehenes längliches 
@@ -264,9 +230,6 @@ die Herren standen) liegt im Mittelpunkt des Ortes Nagy Berezna mit
 nördlicher Front. Worauf "ich durch den Schall noch mehr aufmerk- 
 sam gemacht, meinen Blick nach aufwärts wandte und das Phänomen 
 aufmerksam verfolgte. Aus der kleinen Wolke hatte sich offenbar der 
-
-
-Der Meteorsteiiifall am 9. Juni 1866 bei Knjahinya. 487 
 
 furchtbare Knall entladen. Nach demselben krachte es fort in minder 
 heftigen Schallen, gleich dem Kleingewehrfeuer, respective Peloton- 
