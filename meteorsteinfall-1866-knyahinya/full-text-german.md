@@ -219,321 +219,83 @@ Franz Weisz m/p., k. k. Finanzconcipist bei der k. k. Finanz-Bezirks-Direktion i
 
 "Himmel rein, wolkenlos, kein leises Lüftchen, nur gegen Süden am Horizonte kleine Wolkenschichten, die sich gerade gegen Westen hinzogen."
 
-Vor t/aS Uhr trat aus dem azurblauen Firmamente ein unan- 
-sehnliches weißes, mit schwarzen Punkten versehenes längliches 
-Wölkchen hervor, mit einer Spitze gegen Nordosten, mit der ent- 
-gegengesetzten gegen Südwesten gewendet. --- Etwa gegen */s5Uhr 
-erzitterte die Gegend durch einen auffallenden donnerähnlichen 
-Schall, gleich dem Knalle eines abgeschossenen schweren Geschützes 
-mit wiedergegebenem Echo. "< Das Waldbereiter-Amtsgebäude (indem 
-die Herren standen) liegt im Mittelpunkt des Ortes Nagy Berezna mit 
-nördlicher Front. Worauf "ich durch den Schall noch mehr aufmerk- 
-sam gemacht, meinen Blick nach aufwärts wandte und das Phänomen 
-aufmerksam verfolgte. Aus der kleinen Wolke hatte sich offenbar der 
+"Vor 1/2 5 Uhr trat aus dem azurblauen Firmamente ein unansehnliches weißes, mit schwarzen Punkten versehenes längliches Wölkchen hervor, mit einer Spitze gegen Nordosten, mit der entgegengesetzten gegen Südwesten gewendet. --- Etwa gegen 1/2 5 Uhr erzitterte die Gegend durch einen auffallenden donnerähnlichen Schall, gleich dem Knalle eines abgeschossenen schweren Geschützes mit wiedergegebenem Echo." Das Waldbereiter-Amtsgebäude (in dem die Herren standen) liegt im Mittelpunkt des Ortes Nagy Berezna mit nördlicher Front. Worauf "ich durch den Schall noch mehr aufmerksam gemacht, meinen Blick nach aufwärts wandte und das Phänomen aufmerksam verfolgte. Aus der kleinen Wolke hatte sich offenbar der furchtbare Knall entladen. Nach demselben krachte es fort in minder heftigen Schallen, gleich dem Kleingewehrfeuer, respektive Pelotonfeuer eines Militär-Mannschaftszuges, oder Sieden von Wasser. Man verspürte nun einen starken Schwefelgeruch und sah wie sich kleine und größere Rauchstreifen aus der kleinen Wolke mit Aufleuchten und Blitzesschnelle entlösten und in nordöstlicher Richtung, in beiläufiger Entfernung von 3-4 Meilen (dies ist wohl erst später zugefügt) niederflogen. Das Aufleuchten war ähnlich einem schwachen Blitze mit rötlichem Lichte. Von einer feurigen Kugel oder sonst einer anderen größere Dimensionen annehmenden Lichterscheinung habe ich gar nichts bemerkt. --- Das Ereigniß endete nach 3 Minuten langer Dauer."
 
-furchtbare Knall entladen. Nach demselben krachte es fort in minder 
-heftigen Schallen, gleich dem Kleingewehrfeuer, respective Peloton- 
-feuer eines Militär-Mannschaftszuges, oder Sieden von Wasser. Man 
-verspürte nun einen starken Schwefelgeruch und sah wie sich kleine 
-und größere Rauchstreifen aus der kleinen Wolke mit Aufleuchten 
-und Blitzesschnelle entlösten und in nordöstlicher Richtung, in bei- 
-läufigi^r Entfernung von 3---4 Meilen (dies ist wohl erst später zu* 
-gefugt) niederflogen. Das Aufleuchten war ähnlich einem schwachen 
-Blitze mit röthlichem Lichte. Von einer feurigen Kugel oder sonst 
-einer anderen größere Dimensionen annehmenden Lichterscheinung 
-habe ich gar nichts bemerkt. --- Das Ereigniß endete nach 3 Minuten 
-langer Dauer. 
+Nagy Berezna, 31. August 1866.
 
-Nagy Berezna, 31. August 1866. 
+Raimund Brattusiewicz m/p., k. k. Assistent.
 
-Raimund Brattusiewicz m/p., 
+#### 5\. Beobachtung des k. k. Steueramts-Dieners Joseph Weigel, von Nagy Berezna aus.
 
-k. k. Assiatent. 
+Ich stand unweit der im Gespräche begriffenen (oben genannten) Herren, und bemerkte von da aus eine längliche Wolke, welche weiß mit dunkeln Flecken war, als plötzlich ein donnerähnlicher Krach gleich dem Schusse aus einem schweren Geschütze die Gegend erzittern machte, gleichzeitig dem durch das Echo wiedergegebenen Schalle leuchtete es rötlich auf, und kleine mindere "Kracher" entluden sich aus der Wolke, welche Knalle ein Getöse veranlaßten gleich dem Sieden des Wassers oder auch Zusammenschlagen von Steinen; gleichzeitig sah man kleine Rauchstreifen, mitunter auch größere aus der Wolke entfliegen, welche in einer Richtung nach Nordosten auf eine Entfernung von 3 Meilen (dies aus späteren Nachrichten) niederschlugen. --- Dauer 3 Minuten. --- Am Schlüsse Schwefelgeruch.
 
-5. Beobachtung des k.k. Steueramts- Dieners joseph 
-Weigel, von Nagy Berezna aus. 
+Schließlich muß ich noch bemerken, daß ich die kleine Wolke, aus welcher die Explosion geschah, noch vor derselben sah, und auch den Herrn Steueramts-Assistenten Brattusiewicz auf dieselbe aufmerksam machte.
 
-Ich stand unweit der im Gespräche begriffenen (oben genannten) 
-Herren, und bemerkte von da aus eine längliche Wolke, welche weiß 
-mit dunkeln Flecken war, als plötzlich ein donmerähnlicher Krach 
-gleich dem Schusse aus einem schweren Geschütze die Gegend 
-erzittern machte, gleichzeitig dem durch das Echo wiedergegebenen 
-Schalle leuchtete es röthlich auf, und kleine mindere "Kracher*' ent- 
-luden sich aus der Wolke, welche Knalle ein Getöse veranlaßten 
-gleich dem Sieden des Wassers oder auch Zusammenschlagen v^n 
-Steinen; gleichzeitig sah man kleine Rauchstreifen, mitunter auch 
-größere aus der Wolke entfliegen, welche in einer Richtung nach 
-Nordosten auf eine Entfernung von 3 Meilen (dies aus späteren 
-Nachrichten) niederschlugen. --- Dauer 3 Minuten. --- Am Schlüsse 
-Schwefelgeruch. 
+Nagy Berezna, am 31. August 1866.
 
-Schließlich muß ich noch bemerken, daß ich die kleine Wolke, 
-aus welcher die Explosion geschah, noch vor derselben sah, und auch 
-den Herrn Steueramts -Assistenten Brattusiewicz auf dieselbe 
-aufmerksam machte. 
+Joseph Weigel m/p., k. k. Steueramts-Diener.
 
-Nagy Berezna, am 31. August 1866. 
+#### 6\. Herr k. k. Waldbereiter Anton Pokorny selbst ergänzt noch die Angaben aus Nagy Berezna durch seine eigenen Wahrnehmungen.
 
-Joseph Weigel m/p., 
+Durch Unwohlsein an dem Tage der Erscheinung auf sein Zimmer beschränkt, dessen Fenster die Aussicht gegen Nordwest haben, stellt er den "Knall einem starken Kanonenschusse gleich, daß darüber die Fenster meines gemauerten Quartiers erklirrten," und gibt an, "daß das darauffolgende Rollen ihm vorkam, als wenn mehrere Lastwagen mit eisernen Achsen auf einem mit Stein gepflasterten Wege in Eile vor den Fenstern vorbeigefahren wären."
 
-k. k. SteueramU-DteDer. 
+### 4. Mitteilungen von Herrn Wenzel Negedlo.
 
+Zu besonderem Danke bin ich Herrn k. k. Waldaufseher Wenzel Negedlo verpflichtet, für eine ansehnliche Reihe von Aussagen von Personen aus O'Sztusicsa (NO. von K.), Knyahinya, Sztricsava (SW. von K.), Domasina (SO. von K.) und Ulics (W. v. K.). welche derselbe aus freiem Antriebe aufgesammelt, und in der Gestalt von Protokollen verzeichnet hatte.
 
-488 V. n«i dinier. 
+Ihrer größeren Anzahl wegen glaube ich, dieselben hier nicht in ihrer vollen Ausführlichkeit wiedergeben zu dürfen, da sie doch im Ganzen dasjenige bestätigen, was bereits vorgelegt worden ist, obwohl sie namentlich in ethnographischer Beziehung so manche Eigentümlichkeit darstellen. Indessen darf ich doch nicht verfehlen in einem möglichst kurzen Auszuge, die Mannigfaltigkeit derselben vorzuführen, und den etwa eigentümlichen Angaben Rechnung zu tragen. Manche der letzteren haben gewiß für die Beurteilung als individuelle Angaben nicht wenig Wert, wogegen man denselben einen solchen nicht zugestehen dürfte, wenn man dieselben unter der Autorität von "Man" "man hat beobachtet u. s. w." gewissermaßen als eine bereits kontrollirte und bewiesene Tatsache aufnähme. Sie sind eben Darlegungen von Erscheinungen je nach dem Standpunkte, der Sinnenschärfe und Aufmerksamkeit des Beobachters.
 
-6. Herr k. k. Waldbereiter Anton Pokorny selbst 
-ergänzt noch die Angaben aus Nagy Berezna durch seine eigenen 
-Wahrnehmungen. 
+1\. Aus Sztricsava. Kurtyak Mihaylo, 35 Jahre alt, verheiratet, Vater von zwei Kindern, Besitzer einer halber Session. Mit diesem Zeugen war das oben Nr. 2 gegebene Protokoll von Herrn k. k. Waldbereiter aufgenommen worden.
 
-Durch Unwohlsein an dem Tage der Erscheinung auf sein 
-Zimmer beschrankt, dessen Fenster die Aussicht gegen Nordwest 
-haben, stellt er den ,,Knal] einem starken Kanonenschusse gleich, 
-daß darüber die Fenster meines gemauerten Quartiers erklirrten**, 
-und gibt an, ^daß das darauffolgende Rollen ihm vorkam, als wenn 
-mehrere Lastwagen mit eisernen Achsen auf einem mit Stein gepfla-^ 
-Sterten Wege in Eile vor den Fenstern vorbeigefahren wären**. 
+Den Schall hörte Kurtyak von oberhalb des Felsens Sztyinszka aus NNO. Er selbst und sein Hornvieh blieben erschreckt stehen. Das Rollen schloß sich an. Erst 3 bis 4 Minuten nach dem Knalle fielen die Steine zur Erde. Derselbe Kurtyak gibt an, eben so wie seine Frau Fena Kurtyak, daß die Steine mit Rauch herabgefallen sind. Letztere sah in geringer Entfernung, auf 20 Schritte geschätzt, zwei bedeutendere Steine herabfallen, den einen in eine Hagebutten-Umzäunung des Hausgartens, den andern neben den Stallgebäuden in die Erde, doch wurde keiner derselben aufgefunden.
 
-4. lUtheilaigen von Herrn Weniel Negedlo. 
+2\. Aus Sztricsava. Zar Anna. Ist verheiratet an Zar Vasyl, und Mutter eines Kindes. Arbeitete auf dem Felde. Stand regungslos vor Schreck nach dem ober dem Felsen Sztyinszka gehörten Schlage. 3-4 Minuten nach demselben fielen um sie herum in einer Entfernung von 3-4 Schritten vier Stücke Steine herab. Am vierten Tage wurden drei derselben gefunden, jeder über ein Pfund schwer. Den vierten fand man nicht.
 
-Zu besonderem Danke bin ich Herrn k. k. Waldaufseher Wenzel 
-Negedlo verpflichtet, für eine ansehnliche Reihe von Aussagen 
-von Personen aus 0' Sztusicsa (NO. von K.), Knyahinya, Sztricsava 
-(SW. von K.), Domasina (SO. von K.) und Ulics (W. v. K.). welche 
-derselbe aus freiem Antriebe aufgesammelt, und in der Gestalt von 
-Protokollen verzeichnet hatte. 
+3\. Aus Sztricsava. Kopinka Jurko. Ist 50 Jahre alt, verheiratet, Vater von vier Kindern, ein Achtel Ansässigkeit. Der Fels Sztyinszka ist etwa 1000 Klafter lang; an denselben schließt sich gegen Sonnenaufgang eine 4 bis 5 Joch große Wiese "Maykovay" und noch eine Viertelstunde jenseits derselben die Wiese "Mlaka," diese bereits im O Sztusicsaer Hotter, im Besitze der k. k. Cameral-Herrschaft und gegenwärtig verpachtet. Dies ist die Gegend und Richtung, aus welcher ihm der Hauptknall zu kommen schien. (Dort wurde später der größte Stein von etwa 550 Pfund Gewicht gefunden, worüber etwas später der ausführlichere Berieht des Herrn k. k. Forstcandidaten A. Pukáts folgt.) Kopinka sah nach dem Knalle die kleine Wolke, bereits oval, einem großen Rade vergleichbar. Sie zeigte Strahlen von dunkler grünlicher Farbe, und verschwand langsam nach einer Viertelstunde. Nach dem Schlage begann das Rauschen oder Rollen, nach 4 Minuten fielen die Steine, das Rollen war noch 10 Minuten lang gut hörbar gegen Westen, von Nordost begonnen. Kopinka stand auf einer Anhöhe in der Waldgegend Sucho südwestlich von Sztricsava. Einen vor ihm gefallenen dreieckigen Stein, von etwa 3 bis 4 Loth Gewicht, hob er erst nach zwei Stunden auf, und legte ihn an einem Zaume nieder, von welchem er ihn später wieder aufnahm, um ihn dem später in seinen Beruf anwesenden Herrn Waldaufseher Negedlo zu übergeben.
 
-Ihrer größeren Anzahl wegen glaube ich, dieselben hier nicht in 
-ihrer vollen Ausführlichkeit wiedergeben zu dürfen, da sie doch im 
-Ganzen dasjenige bestätigen, was bereits vorgelegt worden ist, ob- 
-wohl sie namentlich in ethnographischer Beziehung so manche Eigen- 
-thümlichkeit darstellen. Indessen darf ich doch nicht verfehlen in 
-einem möglichst kurzen Auszuge, die Mannigfaltigkeit derselben 
-vorzufuhren, und den etwa eigenthümlichen Angaben Rechnung zu 
-tragen. Manche der letzteren haben gewiß für die Beurtheilung als 
-individuelle Angaben nicht wenig Werth, wogegen man denselben 
-einen solchen nicht zugestehen dürfte, wenn man dieselben unter der 
-Autorität von "Man** "man hat beobachtet u. s. w." gewissermaßen 
-als eine bereits controllirte und bewiesene Thatsache aufnähme. Sie 
-sind eben Darlegungen von Erscheinungen je nach dem Standpunkte, 
-der Sinnenschärfe und Aufmerksamkeit des Beobachters. 
+4\. Aus Sztricsava. Zipper Petro, Karaman Vasyl. Jeder derselben 35 Jahre alt, verheiratet, beide Familienväter. Knall wie aus einer Kanone, ober dem Felsen Sztyinszka Wolke mit dem Rauche nach einer Viertelstunde vergangen. Kinder hielten Hornvieh auf der Weide, die Kinder waren sehr erschreckt, das Hornvieh zog sich mit größter Schnelligkeit in den Wald.
 
-1. Aus Sztricsava. Kurtyak Mihaylo, 38 Jahre alt, ver- 
-heiratet, Vater von zwei Kindern, Besitzer einer halber Session. Mit 
-diesem Zeugen war das oben Nr. 2 gegebene Protokoll von Herrn 
-k. k. Waldbereiter aufgenommen worden.' 
+5\. Dieselben, ferner Zar Petro und Mohnar Feodor bestätigen daß die Fenster in den Häusern geklirrt haben.
 
-Den Schall hörte Kurtyak von oberhalb des Felsens Sztyinszka 
-aus NNO. Er selbst und sein Hornvieh blieben erschreckt stehen. Das 
+6\. Aus Sztricsava. Karaman Jurko und Genossen. Derselbe, eben so Zar Jurko, Ziper Petro, Mohnar Jurko, Pyskorjat Petro, alle fünf verheiratet, Familienväter, Sessionsbesitzer: Knall von ober Sztyinszka hörbar, Wolke und Rollen langsam gegen West verzogen, die Meteorsteine 3 bis 4 Minuten nach dem Schusse oder Knalle zur Erde gefallen.
 
+7\. Aus Sztricsava. Zar Jurko Ortsrichter, Mateyka Miháylo Geschworner. Am 10. Juni wurde unter einem Apfelbaum in dem Garten des Grundwirthes Petrik Vasyl ein Stein von etwa 3 1/2 Pfund im Gewichte gefunden, von dem Ortsrichter selbst. Der Stein hatte durch die Äste ein gerades Loch geschlagen, welches mehr als 3 Wochen sichtbar war, gegen zehn Äste, bis zu einem halben Zoll Durchmesser wurden abgeschlagen, ein Ästchen sah Herr Negedlo noch am 2. September am Baume hängend.
 
-Der Meteorsteinrall am 9. Juni i84>6 bei RnyRhinya. 480 
+Der Ortsrichter hob den Stein, der in einem kleinen Graben lag auf. Er hatte keine Vertiefung in die Erde hervorgebracht.
 
-Rollen schloß sich an. Erst 3 bis 4 Minuten nach dem Knalle 
-fielen die Steine znr Erde. Derselbe Kurtyak gibt an, eben so wie 
-seine Frau Fena Kurtyak, daß die Steine mit Rauch herabgefallen 
-sind. Letztere sah in geringer Entfernung, auf 20 Schritte geschätzt, 
-zwei bedeutendere Steine herabfallen, den einen in eine Hagebutten- 
-Umzäunung des Hiusgartens, den andern neben den Stallgebäuden 
-in die Erde, doch wurde keiner derselben aufgefunden. 
+Ein Israelit Itezko Mittelmann nahm den Stein mit nach Hause, zerschlug ihn auf zwei Teile; er behielt die eine Hälfte für sich, die andere wurde von den Findern nach Nagy Berezna gebracht. Auch die Frau Petrik Jula war gegenwärtig.
 
-2. Aus Sztricsava. Zar Anna. Ist verheiratet an ZarVasyl, 
-und Mutter eines Kindes. Arbeitete auf dem Felde. Stand regungslos 
-Yor Schreck nach dem ober dem Felsen Sztyinszka gehörten 
-Schlage. 3 --- 4 Minuten nach demselben fielen um sie herum in einer 
-Entfernung von 3 --- 4 Schritten vier Stücke Steine herab. Am 
-vierten Tage wurden drei derselben gefunden, jeder über ein Pfund 
-schwer. Den vierten fand man nicht. 
+Bei Petrik Vasyl ist vor seiner Wohnung ein Stein von beiläufig 5 Loth auf ein Leintuch gefallen.
 
-S. Aus Sztricsava. Kopinka Jurko. Ist SO Jahre alt, ver- 
-heiratet, Vater von vier Kindern, ein Achtel Ansässigkeit. Der Fels 
-Sztyinszka ist etwa 1000 Klafter lang; an denselben schließt sich 
-gegen Sonnenaufgang eine 4 bis 5 Joch große Wiese «May- 
-kovay** und noch eine Viertelstunde jenseits derselben die Wiese 
-«Mlaka**, diese bereits im 0 Sztusicsaer Hotter, im Besitze der k. k* 
-Cameral-Herrschaft und gegenwärtig verpachtet. Dies ist die Gegend 
-und Richtung, aus welcher ihm der Hauptknall zu kommen schien- 
-(Dort M'urde später der größte Stein von etwa 550 Pfund Gewicht 
-gefunden, worüber etwas später der ausführlichere Berieht des Herrn 
-k. k. Forstcandidaten A. Pukäts folgt.) Kopinka sah nach dem 
-Knalle die kleine Wolke, bereits oval, einem großen Rade vergleich- 
-bar. Sie zeigte Strahlen von dunkler grünlicher Farbe, und ver- 
-schwand langsam nach einer Viertelstunde. Nach dem Schlage begann 
-das Rauschen oder Rollen, nach 4 Minuten fielen die Steine, das 
-Rollen war noch 10 Minuten lang gut hörbar gegen Westen, von 
-Nordost begonnen. Kopinka stand auf einer Anhöhe in der Wald- 
-gegend Suche südwestlich von Sztricsava. Einen vor ihm gefallenen 
-dreieckigen Stein, von etwa 3 bis 4 Loth Gewicht, hob er erst nach 
-zwei Stunden auf, und legte ihn an einem Zaume nieder, von welchem 
-er ihn später wieder aufnahm, um ihn dem später in seinen Beruf 
-anwesenden Herrn Waldaufseher Negedio zu übergeben. 
+8\. Aus Sztricsava. Mohnar Mihaylo, Dorfhirt, 24 Jahre alt, ledig, fand am vierten oder fünften Tage nach dem Schusse mit mehreren Kameraden ober der Gemeinde Sztricsava einen runden Meteorstein von gegen 20 Pfund in einem Graben. Sie zerschlugen ihn, und warfen die Stücke umher. Später wurden diese von Israeliten aufgesammelt und weggebracht.
 
-4. Aus Sztricsava. Zipper Petro, Karaman Vasyl. 
-Jeder derselben 35 Jahre alt, verheiratet, beide Familienväter. 
+9\. Zar Jurko, Mateyka Mihaylo, Karaman Jurko Grundwirthe. Diese öfters Genannten bestätigen, daß die Bewohner sehr erschreckt waren, und sich fürchteten, die Steine sogleich zu berühren, was erst nach 2 bis 3 Stunden geschah. Man nannte sie Hagelsteine, in slavischem Ausdrucke _Hromowy Kamen_ und glaubte zum Teil sie seien durch Hagel vom Sztyinszkafels abgeschlagen worden.
 
+Sztricsava, am 2. September 1866 für die Genannten, Namensfertiger 
 
-490 r. Ha id in (Ter. 
+Negedlo Wenzl m/p., k. k. Waldaufseher und Zeuge der Aussagen.
 
-Knall wie aus einer Kanone, ober dem Felsen Sziyinszka Wolke mit 
-dem Rauche nach einer Viertelstunde vergangen. Kinder hielten Horn- 
-vieh auf der Weide, die Kinder waren sehr erschreckt, das Hornvieh 
-zog sich mit größter Schnelligkeit in den Wald. 
+10\. Aus Knyahinya. Frau Barbara Mustyanovic. Die Angabe der genannten Frau, gr. n. u. Pfarrerswittwe, übereinstimmend im Ganzen, besagt noch, daß man deutlich beim Herabfallen der Steine höhere und tiefere Töne unterscheiden konnte, daß aber die ganze Erscheinung ein wahrhaft furchtbares Ereigniß genannt werden muß, von welchem man sich kaum einen Begriff machen kann.
 
-ö. Dieselben, ferner Zar Petro und Mohnar Feodor 
-bestätigen daß die Fenster in den Häusern geklirrt haben. 
+11\. Aus Knyahinya. Kalin Ivan. Derselbe ist 44 Jahre alt, verheiratet, Vater von drei Kindern. Hörte den Schall, wie von einer Kanone, wie von oberhalb des Felsens Sztyinszka. Ein langer Strahl von grauem Rauche zog sich gegen Westen, verschwand in einer Viertelstunde.
 
-6. AusSztricsava. KaramanJurko undGenossen. Der- 
-selbe, eben so Zar Jurko, Ziper Petro, Mohnar Jurko, Pyskorjat 
-Petro, alle fünf verheiratet, Familienväter, Sessionsbesitzer: Knall 
-von ober Sztyinszka hörbar, Wolke und Rollen langsam gegen West 
-verzogen, die Meteorsteine 3 bis 4 Minuten nach dem Schusse oder 
-Knalle zur Erde gefallen. 
+12\. Aus dem Zempliner Comitate, Ulicser Gemeinde. Karaman Sztanko, Dutka Mihaylo, Okal Olsa, sämmtlich gegen 50 Jahre alt, verheiratet, Familienväter. Sie haben sämmtlich den Schuß gehört und nach demselben auch das Rollen gehört, so wie einen roten Strom mit einer grauen Wolke gesehen, welche sich ober Sztricsava, von Nordost gegen Westen gezogen. Der Strom war deutlich rot, eine kleine graue Wolke blieb zurück im Nordost und verschwand nach einer Viertelstunde gänzlich. Die Leute gebrauchten für die Bewegung den Ausdruck: der rote Strom habe sich wie eine Peitsche fortgezogen. Auch hörten sie in der Richtung oberhalb Sztricsava Rollen, auch höhere und tiefere Töne, "mit feinem und tiefstimmigem Tone." Auch war noch Sokolicsak Ivan aus der Gemeinde Ticha, Unghvárer Comitat als Zeuge bei der Aufnahme des Herrn W. Negedlo am 30. August gegenwärtig.
 
-7. Aus Sztricsava. Zar Jurko Ortsrichter, Mateyka 
-Mihaylo Geschworner. Am 10. Juni wurde unter einem Apfelbaum in 
-dem Garten des Grundwirthes Petrik Vasyl ein Stein von etwa 
-3«/8 Pfund im Gewichte gefunden, von dem Ortsrichter selbst Der 
-Stein hafte durch die Äste ein gerades Loch geschlagen, welches 
-mehr als 3 Wochen sichtbar war, gegen zehn Ästß, bis zu einem 
-halben Zoll Durchmesser wurden abgeschlagen, ein Ästchen sah Herr 
-Negedio noch am 2. September am Baume hängend. 
+13\. Aus Domasina, SO. von Knyahinya. Kicsak Petro, 50 Jahre alt, Leczo Ivan 45 Jahre alt, Prislupsky Ivan 50 Jahre alt, sämmtlich Familienväter und Grundwirthe, arbeiteten auf dem Felde. Bei heiterem Himmel über dem Felsen Sztyinszka ein Knall wie aus einem gut geladenen Gewehr, Rauch entstand, der sich von NO. gegen W. zog, in einer Viertelstunde war nichts mehr sichtbar. Alles erschrak, die Kinder fürchten sich bis jetzt wenn es anfängt zu donnern. Kuzma Karl, Geschworner, vergleicht den Schall mit einem starken Kanonenschusse, es erschien ihm als ob die Erde gezittert, doch gibt er dies nicht bestimmt an, da er selbst so sehr erschrak, daß er noch eine Stunde lang nichts arbeiten konnte. Am 2. September von Herrn W. Negedlo aufgezeichnete Aussagen.
 
-Der Ortsrichter hob den Stein, der in einem kleinen Graben lag 
-auf. Er hatte keine Vertiefung in die Erde hervorgebracht. 
+14\. Eine der Mitteilungen des Herrn W. Negedlo erheischt aber noch besonders erwähnt zu werden, nämlich seine eigene, wenn sie auch auf den nämlichen Standpunkt sich bezieht, wie diejenige, welche oben von Herrn Anton Pukáts aufgeführt wurde. Aber sie gewinnt eben dadurch wieder an Gewicht. Beide Herren waren nämlich im Forstdienste dort mit einer Anzahl von Aufsehern und Arbeitern im Ganzen 7-8 Personen gegenwärtig. Der Schall wird von Herrn Negedlo verglichen mit dem Knall einer Sechspfünder-Kanone. Er unterschied einen ersten kleinen und unmittelbar darauf den großen starken Knall, worauf alsbald ein tiefstimmiges Kollern begann, welches gegen zehn Minuten von NO. gegen W. zog, aber bis zum Ende gut hörbar blieb. Plötzlich rief einer der Leute: Herr, sehen Sie die Wolke? Alles betrachtete nun die nordöstliche Himmelsgegend, in welcher die Wolke in der Größe "eines Faßes" sichtbar war, und zwar von blaulichgrüner Farbe. Nach ein Paar Minuten hatte sich die Wolke auseinandergezogen, nach einer Viertelstunde war der Himmel wieder rein und klar wie zuvor.
 
-Ein Israelit Itezko Mittel mann nahm den Stein mit nach Hause, 
-zerschlug ihn auf zwei Theile; er behielt die eine Hälfte für sich, die 
-andere wurde von den Findern nach Nagy Berezna gebracht. Auch die 
-Frau Petrik Jula war gegenwärtig. 
+Sogleich nach dem Schlage hatte Herr Negedlo den Herrn Forstcandidaten A. Pukáts ersucht, die Taschenuhr zu vergleichen, und dieser antwortete: "Es fehlen noch 4 Minuten von 5 Uhr."
 
-Bei Petrik Vasyl ist vor seiner Wohnung ein Stein von bei- 
-läufig 5 Loth auf ein Leintuch gefallen. 
+Herr Negedlo war wenige Tage darnach von Herrn k. k. Waldbereiter A. Pokorny nach Knyahinya und Sztricsava gesandt worden, aber brachte nur die Aussage der Bewohner mit zurück, daß Steine an jenem 9. Juni vom Himmel gefallen seien, ohne fernere Berichterstattung.
 
-8. AusSztricsava. Mohnar Mihaylo, Dorfiiirt, 24 Jahre 
-alt, ledig, fand am vierten oder fünften Tage nach dem Schusse mit 
-mehreren Kameraden ober der Gemeinde Sztricsava einen runden 
-Meteorstein von gegen 20 Pfund in einem Graben. Sie zerschlugen 
-ihn, und warfen die Stücke umher. Später wurden diese von Israeliten 
-aufgesammelt und weggebracht. 
+### 5. Berieht über die Aufsammlung der Steine.
 
-9. Zar Jurko, Mateyka Mihaylo, Karaman Jurko Grund- 
-wirthe. Diese öfters Genannten bestätigen, daß die Bewohner sehr 
-erschreckt waren, und sich fürchteten, die Steine sogleich zu berühren, 
-was erst nach 2 bis 3 Stunden geschah. Man nannte sie Hagelsteine, 
+Herr Negedlo gibt sodann eine anziehende Schilderung der Vorgänge, wie nach und nach die Aufmerksamkeit mehr auf die Meteorsteine geleitet wurde. Am 21. Juni war ein Herr Egger aus Pesth bei Herrn Negedlo gewesen, um sich über dieselben zu erkundigen, und sodann nach acht Tagen noch einmal, bei welcher Zeit Herr Negedlo bereits um kleine Entschädigungen an die zwanzig Stücke aufgesammelt, im Gewicht zwischen 1 und 16 Loth, wovon zwölf Stücke, im Gesammtgewicht von etwa 3 Pfund von Herrn Egger erworben wurden. Außer diesen noch zwei Stücke, zusammen etwa 1 Pfund erhielt Herr Prof. v. Duma in Unghvár, 4 1/2 Pfund Herr Waldbereiter Pokorny, 12 Pfund in verschiedener Größe Herr Civil-Ingenieur Franz Kistler in Unghvár.
 
+Am Schlusse seiner freundlichen Mitteilung vom 4. September hatte Herr Negedlo noch 64 Stücke, zusammen von 71 Pfund, im Gewichte zwischen 2 1/2 Pfund und 1 Loth in seinem Besitze.
 
-Der Meteorateinfall am 9. Juoi 1866 bei Knjahinya. 491 
-
-in slavischem Ausdrucke Hromowy Kamen und glaubte zum Theil sie 
-seien durch Hagel vom Sztyinszkafels abgeschlagen worden. 
-Sztricsaya, am 2. September 1866 
-
-für die Genannten, Namensfertiger 
-
-Negedlo Wenzl m/p., 
-
-k. k. Waldaafseher und Zea^e der Aassagen. 
-
-10. Aus Knyahinya. Frau Barbara Mustyanovic. Die 
-Angabe der genannten Frau, gr. n. u. Pfarrerswittwe, übereinstimmend 
-im Ganzen, besagt noch, daß man deutlich beim Herabfallen der 
-Steine höhere und tiefere Töne unterscheiden konnte, daß aber die 
-ganze Erscheinung ein wahrhaft furchtbares Ereigniß genannt werden 
-muß, Ton welchem man sich kaum einen Begriff machen kann. 
-
-11. Aus Knyahinya. Kai in Ivan. Derselbe ist 44 Jahre 
-alt, verheiratet, Vater von drei Kindern. Hörte den Schall, wie von 
-einer Kanone, wie von oberhalb des Felsens Sztyinszka. Ein langer 
-Strahl von grauem Rauche zog sich gegen Westen, verschwand in 
-einer Viertelstunde. 
-
-12. AusdemZemplinerComitate, UlicserGemeinde. 
-Kar am an Sztanko, Dutka Mihaylo, Okal Olsa, sämmtlich gegen 
-SO Jahre alt, verheiratet, Familienväter. Sie haben sämmtlich den 
-Schuß gehört und nach demselben auch das Rollen gehört, so wie 
-einen rothen Strom mit einer grauen V^olke gesehen, welche sich 
-ober Sztricsava, von Nordost gegen V^esten gezogen. Der Strom 
-war deutlich roth, eine kleine graue Wolke blieb zurück im Nordost 
-und verschwand nach einer Viertelstunde gänzlich. Die Leute ge- 
-brauchten für die Bewegung den Ausdruck: der rothe Strom habe 
-sich wie eine Peitsche fortgezogen. Auch hörten sie in der Richtung 
-oberhalb Sztricsava Rollen, auch höhere und tiefere Töne, "mit feinem 
-und tiefstimmigem Tone**. Auch war noch Sokolicsak Ivan aus der 
-Gemeinde Ticha, Unghv^rer Comitat als Zeuge bei der Aufnahme des 
-Herrn W. Negedlo am 30. August gegenwärtig. 
-
-13. AusDomasina, SO. von Knyahinya. KicsakPetro, 
-50 Jahre alt, Leczo Ivan 45 Jahre alt, Prislupsky Ivan 50 Jahre 
-alt, sämmtlich Familienväter und Grundwirthe, arbeiteten auf dem 
-Felde. Bei heiterem Himmel über dem Felsen Sztyinszka ein Knall wie 
-aus einem gut geladenen Gewehr, Hauch entstand, der sich von NO. 
-gegen W. zog, in einer Viertelstunde war nichts mehr sichtbar. 
-
-SiUb. d. iDatbem.-natiirw. Gl. UV. Bd. 11. Abth. 32 
-
-
-492 T. Haidinerer. 
-
-Alles erschrak, die Kinder furchten sich bis jetzt wenn es anfangt 
-zu donnern. Kuzma Karl, Geschworner, vergleicht den Schall mit 
-einem starken Kanonenschusse, es erschien ihm als ob die Erde 
-gezittert, doch gibt er dies nicht bestimmt an, da er selbst so sehr 
-erschrak, daß er noch eine Stunde lang nichts arbeiten konnte. Am 
-2. September von Herrn W. Negedlo aufgezeichnete Aussagen. 
-
-14. Eine der Mittheilungen des Herrn W. Negedlo erheischt 
-aber noch besonders erwähnt zu werden, nämlich seine eigene, wenn 
-sie auch auf den nämlichen Standpunkt sich bezieht, wie diejenige, 
-welche oben von Herrn Anton Puk&ts aufgeführt wurde. Aber sie 
-gewinnt eben dadurch wieder an Gewicht. Beide Herren waren 
-nämlich im Forstdienste dort mit einer Anzahl von Aufsehern und 
-Arbeitern im Ganzen 7---8 Personen gegenwärtig. Der Schall wird 
-von Herrn Negedlo verglichen mit dem Knall einer Sechspfünder- 
-Kanone. Er unterschied einen ersten kleinen und unmittelbar darauf 
-den großen starken Knall, worauf alsbald ein tiefstimmiges Kollern 
-begann, welches gegen zehn Minuten von NO. gegen W. zog, aber 
-bis zum Ende gut hor^nr blieb. Plötzlich rief einer der Leute: Herr, 
-sehen Sie die Wolke? Alles betrachtete nun die nordöstliche 
-Himmelsgegend, in welcher die Wolke in der Größe "eines Faßes** 
-sichtbar war, und zwar von blaulichgruner Farbe. Nach ein Paar 
-Minuten hatte sich die Wolke auseinandergezogen, nach einer 
-Viertelstunde war der Himmel wieder rein und klar' wie zuvor. 
-
-Sogleich nach dem Schlage hatte Herr Negedlo den Herrn 
-Forstcandidaten A. Pukäts ersucht, die Taschenuhr zu vergleichen, 
-und dieser antwortete: "Es fehlen noch 4 Minuten von S Uhr". 
-
-Herr Negedlo war wenige Tage darnach von Herrn k. k. 
-Waldbereiter A. Pokorny nach Knyahinya und Sztricsava gesandt 
-worden, aber brachte nur die Aussage der Bewohner mit zurück, 
-daß Steine an jenem 9. Juni vom Himmel gefallen seien, ohne fernere 
-Berichterstattung. 
-
-5. Berieht Aber die Aifsammlmg der Steile. 
-
-Herr Negedlo gibt sodann eine anziehende Schilderung der 
-Vorgänge, wie nach und nach die Aufmerksamkeit mehr auf die 
-Meteorsteine geleitet wurde. Am 21. Juni war ein Herr Egg er 
-aus Pesth bei Herrn Negedlo gewesen» um sich über dieselben zu 
-erkundigen, und sodann nach acht Tagen noch einmal, bei welcher 
-
-
-Der Meteonteinfall eon 9. Jon! 18«6 bei Knyahloya. 493 
-
-Zeit Herr Negedlo bereits um kleine Entschädigungen an die 
-zwanzig Stöcke aufgesammelt, im Gewicht zwischen 1 und 16 Loth, 
-woTon zwölf Stucke, im Gesammtgewicht von etwa 3 Pfund von 
-Herrn Egger erworben wurden. Außer diesen noch zwei Stücke, 
-zusammen etwa 1 Pfund erhielt Herr Prof. v. Duma in Unghvär, 
-4% Pfund Herr Waldbereiter Pokorny, 12 Pfund in verschiedener 
-Größe Herr CiviMngenieur Franz K ist 1er in Unghvär. 
-
-Am Schlüsse seiner freundlichen Mittheilung vom 4. September 
-hatte Herr Negedlo noch 64 Stücke, zusammen von 71 Pfund, im 
-Gewichte zwischen 2% Pfund und 1 Loth in seinem Besitze. 
-
-In einem späteren Zeitabschnitte erst wurden die zwei größten 
-Meteoriten aufgefunden, einer von 560 Pfund, einer von TS*/« Pfund 
-Gewicht. 
+In einem späteren Zeitabschnitte erst wurden die zwei größten Meteoriten aufgefunden, einer von 550 Pfund, einer von 73 1/2 Pfund Gewicht.
 
 Bis zum 4. September hatte Herr Negedlo bereits viele Gänge 
 über den Bezirk von Knyahinya und von Sztricsava unternommen, 
@@ -561,21 +323,6 @@ der gefallenen Steine und berichtete über das Ereigniß, so wie es
 im Vorhergehenden protokollarisch dargestellt ist. Erst nach drei 
 Wochen wurde von einem Loche Meldung gemacht,) das sich auf 
 
-3V 
-
-
-494 
-
-
-r. H « i d i D g e r. 
-
-
-N 
-
-
-"^ 
-
-
 einer Wiese, genannt Cserne Mlaki, auf dem Sztusicsaer Hotter 
 befand, in der Gegend B auf Fig. 1 und 2. 
 
@@ -600,12 +347,6 @@ suchte ich zuerst durch Einschlagen eines Pflockes die Tiefe zu
 ergründen. Nach dem ersten Einschlagen ließ ich um den Pflock 
 
 
-/V-^. 
-
-
-Sttuv 
-
-
 herum die Erde weggraben und den- 
 selben sodann tiefer einschlagen, 
 was auch in dem zerbröckelten 
@@ -624,9 +365,6 @@ und mit eingelegten Treppenvorrichtungen, da nur Ein Mann mit
 voller Gewalt angreifen konnte, ** und endlich Herr Pukits selbst 
 Hand anlegte "dieselben herauszuwälzen. Der Grund ; auf dem der 
 Stein lag, war steinhart zusammengedrückt.** 
-
-
-Der Meteorateinfall am 9. Jani 1866 bei Rnyahinja. 495 
 
 Den in Fig. 8 und 6 gegebenen Skizzen entsprechend wSre die 
 Richtung, nach welcher der Stein in den Boden drang, etwa von 
@@ -675,9 +413,6 @@ Davon aber war keine Rede, daß wie ich in einem Berichte las
 »Weiber und Kinder erschreckt zu Boden stürzten und zitternd den 
 Weltuntergang erwarteten*'. Das ist einfach eine Fabel. Ich habe in 
 
-
-496 T. Haidiapar. 
-
 einem Schreiben an den Regalienpaehter Ignaz Feuermann, 
 welches auch Herrn k. k. Waldbereiter Pokorny vorgelegt worden 
 ist, die unmittelbare Frage gestellt, ob auch nur Ein Beispiel eines 
@@ -720,9 +455,6 @@ in den mir freundlichst von ersterem mitgetheilten Plan Fig. 1 (Seite
 6) übertragen. Die Fallpunkte der Steine sind durch kleine Quadrate 
 bezeichnet, und unter denselben das Pfundgewicht der Steine ange- 
 geben. Westlich von der Mühle am Sztricsava-Bache, auf einer 
-
-
-Der Meteorsteinfall am 9. Joni 1866 bei Rnjahioya. 497 
 
 Wiese gegen deo Hügel Horbek soll ein ansehnlicher Stein gefallen 
 sein, den man indessen ungeachtet rielialtiger Nachsuchungen nicht 
@@ -770,9 +502,6 @@ Pfarrer Joseph Gerzanics, Baran Jurko, Knyahinya, 2 Pfd.
 Anton Pokorny, Feuermann Ignaz, Knyah., B«/, ^ 
 
 Dr. Lorenz Riczko, Unghvär, Magd des Feuermann, 17 " 
-
-
-498 ▼. H a i d i n g e r. 
 
 Ein Stein schlug das Dach des Stalles in der Pfarrei zu 
 Knyahinya durch, und wurde auf dem Fußboden lie- 
@@ -886,10 +615,6 @@ breitete sich über einen länglich von Nordost gegen Südwest
 gestreckten Raum von etwa 8000 Klafter Länge, und einer Breite 
 Yon etwa 3000 Klaftern. 
 
-
-SOO ▼. Haidinger. 
-
-
 11. Besckaffeoheit der Steile. 
 
 Die Steine fielen alle einzeln herab. Es war nicht das Ganze 
@@ -984,9 +709,6 @@ d. Wissensch. mathem.-naturw. Cl. Bd. XL. S. 525. --- Stannern. Ein zweiter
 Meteorstein, durch seine Rinde genau in seiner kosmischen Bahn orientirt. Sitzung 
 •m 2t. Mti ISet. SiUungsb. Bd. XLV. S. 791. 
 
-
-502 ▼• Haidinger. 
-
 Diese drei Stücke enthielt die von Herrn k. k. Waldbereiter 
 Anton Pokorny von Nagy Berezna an das k. k. Hof-Mineralien- 
 cabinet geleitete Sendung. 
@@ -1031,17 +753,9 @@ Der Stein von 27 Pfund, und die von Herrn Negedlo auf-
 gefundenen Splitter und Bruchstücke ergänzen sehr gut das Bild, 
 
 
-Der Meteorsteiafall am 9. Juni 1806 bei Knyahinya.. 
-
-
-503 
-
-
 8 Rückseite. 
 
-
 Fig, 9 Ansieht von oben. 
-
 
 welches man sich von dem Vorgänge zu entwerfen durch die 
 übrigen Erscheinungen angezogen fühlt. 
@@ -1087,9 +801,6 @@ wie gegen die Bruchaxenlinie zu gewaltsam herausgerissen.
 
 
 Fig. 10 Vorderseite. 
-
-
-o04 T. H • i d i D g e r. 
 
 Der Stein ist im Ganzen überrindet, die Sehmelzg^Gbchen 
 ziemlich flach, übersteigen im Durchmesser einen halben Zoll nicht, 
@@ -1177,16 +888,6 @@ gab Herr Kistler freundlichst auch graphisch die Richtung des Falles,
 aus etwa 50 Grad Höhe bis zu einiger Entfernung von der Erde, die 
 in der Zeichnung ungefShr auf die Höhe von 10 Grad fallt. 
 
-
-506 
-
-
-T. H a i d i n g e r, 
-
-
-^y//. 
-
-
 Bei der Entfer- 
 nung von Unghvir 
 vom Fallorte Knya- 
@@ -1238,9 +939,6 @@ der Gestalt einer Feuerkugel fallen sah, tauschte man sich hier, wie
 bei so vielen anderen Gelegenheiten, daß man glaubte der Fall sei 
 ganz in der Nähe geschehen, hinter einem Gebäude, in einem Walde, 
 
-
-Der Meteorsteinfall am 9. Juni 1866 bei Knjrahinya. 807 
-
 jenseits eines nahen Hügels und dergleichen, ja man suchte selbst, 
 eine Zeit lang, wenn auch natürlich ohne Erfolg. 
 
@@ -1284,9 +982,6 @@ gegen Nord geneigt mit außerordentlicher Schnelligkeit. Als sich die-
 selbe der Erde näherte, wurde sie dunkler, und dem Auge nicht mehr 
 
 SiUb. d. inathem.-natarw. Cl. UV. Bd. II. Abtii. 33 
-
-
-510 T. H ft i'd i n ^ e r- 
 
 den war, aber beide fehlerhaft, denn die Richtung war genau östlich 
 durch den Fall selbst beurkundet. Man würde nach den Angaben sehr 
@@ -1332,13 +1027,6 @@ schmalen weißen Streif, welcher nach unten in einen Knoten endete.
 
 i) Sittungsb. d. mathem.-natorw. Cl. d. kais. Akad. d. Wissensch. Bd. XLIX, S. 637. 
 
-
-Der Meteonteinfall am 9. Juni 1866 bei Knjahinya. 
-
-
-811 
-
-
 sich "mit großer Schnelligkeit gegen einen" vorliegenden "Dach- 
 winkel zu bewegen,'' welchen Herr Hazsiinszky auf etwa 30 Grad 
 über dem Horizont schätzte. "Der anfangs weiße Knoten wurde immer 
@@ -1365,11 +1053,6 @@ Ich werde unmittelbar an die vorhergehende Angabe anschließend,
 versuchen, durch Combination der Beobachtungen in Eperies und 
 Gälsz^cs mit jener in Unghv&r die Richtung des Falles näher zu 
 erörtern. Es gelingt wohl am kürzesten und anschaulichsten durch 
-
-N 
-
-
-512 T. HaidinKer. 
 
 eine geographische Projection Fig. 12, zwischen dem Fallorte Knya- 
 hinya und den Beobachtungsorten Unghvar, Galsz^cs und Eperies. 
@@ -1416,9 +1099,6 @@ als wahrscheinlich überschätzt bezeichnet <).
 Jobo Herschel nssocie de Tacademie J^ M. Ad. Quetelet. Bailetina de PA. R. de 
 ßelgique, 2™' Ser. T. Xvi. Nr. 9. 
 
-
-Der MeteorsteiDfiiU am 9. Juoi 18((6 bei Kofthinya. 513 
-
 Bei dem Umstände, daß kaum irgend etwas in der Praxis so 
 leicht überschätzt wird, wie ein Höhenwinkel, und doch auch nicht 
 einmal annähernde astronomischen ähnliche Schätzungen vorliegen, 
@@ -1462,9 +1142,6 @@ selbst unzertrennlich ist. Am 9. Juni stand nämlich die Capeila im
 Cepheus nur wenig südlich vom Zenith von Knyahinya. Nach- 
 mittag 6 Uhr standen die südlicheren Sterne des großen Bären an 
 dieser Stelle. Auf diese Gegend ungefähr weist also die entsprechend 
-
-
-514 V. Raidinger. 
 
 den vorliegenden Angaben angenommene Richtung des Falles, als 
 Grundlage zu weiterer Betrachtung. 
@@ -1691,8 +1368,6 @@ Auf dem Felde mit Erdäpfel-Umhäufeln zu Andrasfalva beschäf-
 tigt, sah Susanna Kuszka» verehelichte Thurza, Kutschers- 
 
 
-Der MeteorsteiofHil am 9. Jaoi 1806 bei Knyahinjra . 519 
-
 gattin, evangelisch, 40 Jahre alt "g^gen 5 Uhr Abends" eine 
 feurige Kugel in der Gestalt eines Kruges welche unten helllicht 
 oben aber feurig und gleichsam brennend erschien, bald darauf in 
@@ -1715,9 +1390,7 @@ erhoben, und Haussuchungen gegen die letztere verlangt wurden,
 was jedoch an der bessern Einsicht und Beurtheilung des Herrn 
 Obergespans v. Szentivanyi scheiterte. 
 
-
 S c h I u s s« 
-
 
 Es ließ sich bereits aus den allerersten Berichten über den 
 Meteorsteinfall am 9. Juni 1866 bei Knyahinya erwarten, daß sich 
