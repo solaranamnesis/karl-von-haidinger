@@ -50,12 +50,7 @@ An den schärfsten Kanten ist der Stein hin und wieder abgestossen. Es muß dies
 
 [Fig.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-1.png)
 
-Jedenfalls glaube ich, ist bei der heutigen Mitteilung, welche 
-doch noch sehr den Charakter einer bloß vorläufigen besitzt, so viel 
-gewonnen, daß der Fall von Knyahinya bei Berezna im Ungher-Comi- 
-tate in Ungarn am 9. Juni 1866 zu jenen zählt, in welchen ein ziem- 
-lich ansehnlicher Schwarm einzelner Gesteinfragmente auf unserer 
-Erde angekommen ist.
+Jedenfalls glaube ich, ist bei der heutigen Mitteilung, welche doch noch sehr den Charakter einer bloß vorläufigen besitzt, so viel gewonnen, daß der Fall von Knyahinya bei Berezna im Ungher-Comitate in Ungarn am 9. Juni 1866 zu jenen zählt, in welchen ein ziemlich ansehnlicher Schwarm einzelner Gesteinfragmente auf unserer Erde angekommen ist.
 
 ---
 
@@ -297,129 +292,37 @@ Am Schlusse seiner freundlichen Mitteilung vom 4. September hatte Herr Negedlo n
 
 In einem späteren Zeitabschnitte erst wurden die zwei größten Meteoriten aufgefunden, einer von 550 Pfund, einer von 73 1/2 Pfund Gewicht.
 
-Bis zum 4. September hatte Herr Negedlo bereits viele Gänge 
-über den Bezirk von Knyahinya und von Sztricsava unternommen, 
-auch in Begleitung mehrerer der Bewohner, aber selbst nicht mehr 
-als vier Meteorsteine gefunden, von welchen einer, etwa 1 Loth 
-schwer, vier Zoll tief in die Ackererde eingedrungen war, die anderen 
-aber ganz oberflächlich auf Ackerfeld lagen. Selbst 1- bis 2pfündige 
-Steine fand man auf der Oberfläche liegen, da der Grund durch lange 
-anhaltende Dürre sehr fest war. Ein 73 «/^ Pfund schwerer Stein 
-war nur zwei Fuß tief eingedrungen, auf nur 100 Schritt (40 Klaf- 
-ter) Entfernung von dem größten bisher aufgefundenen Steine von 
-einem Gewichte von 550 Pfund. In Bezug auf diesen schließe ich hier 
-am zweckmäßigsten den Bericht über die von Herrn k. k. Forstcan- 
-didaten A. Pukäts ausgeführte Ausgrabung desselben an, welchen 
-ich ihm verdanke, in derselben Mittheilung vom 22. August, aus 
-welcher ich bereits die an der Spitze der Beobachtungen gestellten 
-Wahrnehmungen verzeichnete. 
+Bis zum 4. September hatte Herr Negedlo bereits viele Gänge über den Bezirk von Knyahinya und von Sztricsava unternommen, auch in Begleitung mehrerer der Bewohner, aber selbst nicht mehr als vier Meteorsteine gefunden, von welchen einer, etwa 1 Loth schwer, vier Zoll tief in die Ackererde eingedrungen war, die anderen aber ganz oberflächlich auf Ackerfeld lagen. Selbst 1- bis 2pfündige Steine fand man auf der Oberfläche liegen, da der Grund durch lange anhaltende Dürre sehr fest war. Ein 73 1/2 Pfund schwerer Stein war nur zwei Fuß tief eingedrungen, auf nur 100 Schritt (40 Klafter) Entfernung von dem größten bisher aufgefundenen Steine von einem Gewichte von 550 Pfund. In Bezug auf diesen schließe ich hier am zweckmäßigsten den Bericht über die von Herrn k. k. Forstcandidaten A. Pukáts ausgeführte Ausgrabung desselben an, welchen ich ihm verdanke, in derselben Mitteilung vom 22. August, aus welcher ich bereits die an der Spitze der Beobachtungen gestellten Wahrnehmungen verzeichnete.
 
-6. Befiehl Aber die Aisgrabmi^ des großen Steines. Ton A. Pikäts. 
+### 6. Bericht über die Ausgrabung des großen Steines. Von A. Pukáts.
 
-Schon in den ersten Tagen nach dem Falle hatten die Herren 
-k. k. Waldbereiter Pokorny und Herr k. k. Forstcandidat A. Pukits 
-die Gegend von Knyahinya besucht. Man brachte ihnen mehrere 
-der gefallenen Steine und berichtete über das Ereigniß, so wie es 
-im Vorhergehenden protokollarisch dargestellt ist. Erst nach drei 
-Wochen wurde von einem Loche Meldung gemacht,) das sich auf 
+Schon in den ersten Tagen nach dem Falle hatten die Herren k. k. Waldbereiter Pokorny und Herr k. k. Forstcandidat A. Pukáts die Gegend von Knyahinya besucht. Man brachte ihnen mehrere der gefallenen Steine und berichtete über das Ereigniß, so wie es im Vorhergehenden protokollarisch dargestellt ist. Erst nach drei Wochen wurde von einem Loche Meldung gemacht, das sich auf einer Wiese, genannt Cserne Mlaki, auf dem Sztusicsaer Hotter befand, in der Gegend _B_ auf Fig. 1 und 2.
 
-einer Wiese, genannt Cserne Mlaki, auf dem Sztusicsaer Hotter 
-befand, in der Gegend B auf Fig. 1 und 2. 
+Auf der Ansicht Fig. 2 ist diese Wiese von dem vorliegenden Javornik-Berg bedeckt, und daher nicht sichtbar. Sie schließt sich an den jenseitigen Bergrücken rechts an den Sztyinszka-Felsen in dem weiteren Verlaufe desselben an.
 
-Auf der Ansicht Fig. 2 ist diese Wiese von dem vorliegenden 
-Javornik-Berg bedeckt, und daher nicht sichtbar. Sie schließt sich an 
-den jenseitigen Bergrücken rechts an den Sztyinszka- 
-Felsen in dem weiteren Verlaufe desselben an. 
+[Fig. 5.]()
 
-Es ließ sich wohl vermuthen, daß diese Grube 
-durch einen größeren Meteorstein verursacht wor- 
-den sei. "Von Herrn Waldbereiter ausgesendet, 
-«sagt Herr Pukäts,** machte ich mich eines Tages 
-um 3 Uhr Früh auf, um den Stein zu heben. Beim 
-^ Anlangen auf der Wiese erblickte ich ein etwa 4 Fuß 
-breites und ^^j^ Fuß tiefes Loch mit aufgeworfenen, 
-^ umgestülpten Rändern, wie bei einem durch einen 
-elektrischen Funken durchgeschlagenen Karten- 
-blatte. Rasenstücke lagen bis dreißig Klafter vom 
-Loch entfernt umhei^eschleudert. Ohne Zweifel 
-ag dort ein Stein, aber wie tief? Mit nur sehr wenig Werkzeugen 
-suchte ich zuerst durch Einschlagen eines Pflockes die Tiefe zu 
-ergründen. Nach dem ersten Einschlagen ließ ich um den Pflock 
+Es ließ sich wohl vermuten, daß diese Grube durch einen größeren Meteorstein verursacht worden sei. "Von Herrn Waldbereiter ausgesendet, "sagt Herr Pukáts," machte ich mich eines Tages um 3 Uhr Früh auf, um den Stein zu heben. Beim Anlangen auf der Wiese erblickte ich ein etwa 4 Fuß breites und 4 1/2 Fuß tiefes Loch mit aufgeworfenen, umgestülpten Rändern, wie bei einem durch einen elektrischen Funken durchgeschlagenen Kartenblatte. Rasenstücke lagen bis dreißig Klafter vom Loch entfernt umhergeschleudert. Ohne Zweifel ag dort ein Stein, aber wie tief? Mit nur sehr wenig Werkzeugen suchte ich zuerst durch Einschlagen eines Pflockes die Tiefe zu ergründen. Nach dem ersten Einschlagen ließ ich um den Pflock herum die Erde weggraben und denselben sodann tiefer einschlagen, was auch in dem zerbröckelten Karpathen-Sandsteingebilde nicht schwer war. Aber immer noch kein fester Grund. Ein solcher wurde erst erreicht als ich den Pflock in der Richtung γ einschlagen ließ. Erst jetzt stießen wir auf etwas festes, aber ein abgebrochenes Stück (α), welches ich für einen Teil des Ganzen ansprach, und daher weiter graben ließ, bis wir den großen Stein β gefunden hatten. Er lag über 11 Fuß tief in dem Boden, und war in zwei Teile zerspalten. Da jeder Teil mehr als dritthalb Zentner wiegt, so gelang es nur mit großer Anstrengung und mit eingelegten Treppenvorrichtungen, da nur Ein Mann mit voller Gewalt angreifen konnte," und endlich Herr Pukáts selbst Hand anlegte "dieselben herauszuwälzen. Der Grund, auf dem der Stein lag, war steinhart zusammengedrückt."
 
+Den in Fig. 5 und 6 gegebenen Skizzen entsprechend wäre die Richtung, nach welcher der Stein in den Boden drang, etwa von N 31° O gegen S 31° W., bei einer Zenithdistanz von etwa 27°.
 
-herum die Erde weggraben und den- 
-selben sodann tiefer einschlagen, 
-was auch in dem zerbröckelten 
-Karpathen- Sandsteingebilde nicht 
-schwer war. Aber inuner noch kein 
-fester Grund. Ein solcher wurde 
-erst erreicht als ich den Pflock in 
-der Richtung 7 einschlagen ließ. 
-Erst jetzt stießen wir auf etwas 
-festes, aber ein abgebrochenes Stück (a), welches ich für einen 
-Theil des Ganzen ansprach, und daher weiter graben ließ, bis wir 
-den großen Stein ]3 gefunden hatten. Er lag über 11 Fuß tief in 
-dem Boden, und war in zwei Theile zerspalten. Da jeder Theil mehr 
-als dritthalb Centner wiegt, so gelang es nur mit großer Anstrengung 
-und mit eingelegten Treppenvorrichtungen, da nur Ein Mann mit 
-voller Gewalt angreifen konnte, ** und endlich Herr Pukits selbst 
-Hand anlegte "dieselben herauszuwälzen. Der Grund ; auf dem der 
-Stein lag, war steinhart zusammengedrückt.** 
+Aus Herrn Negedlos Berichten muß ich in Bezug auf den großen Stein noch beifügen, daß derselbe am 27. Juli von zwei Bauern begleitet, die Gegend auf der Wiese Mlaka aufsuchte, wo derselbe gefallen war, um den Grund nach sorgfältig nach etwa abgetrennten Bruchstücken zu untersuchen. In der Tat fand er eine Anzahl kleiner flacher Meteorsteinsplitter. Auf dem festen Boden des Loches selbst fand er vier größere Splitter die flach waren und über ein Pfund wogen, dann seitwärts noch ein Stück anderthalb Pfund schwer.
 
-Den in Fig. 8 und 6 gegebenen Skizzen entsprechend wSre die 
-Richtung, nach welcher der Stein in den Boden drang, etwa von 
-NSl^'O gegen SSl'^W., bei einer Zenithdistanz von etwa 27°. 
+### 7. Mitteilungen des Herrn A. Pukáts.
 
-Aus Herrn Negedlo's Berichten muß ich in Bezug auf den 
-großen Stein noch beifügen, daß derselbe am 27. Juli von zwei 
-Bauern begleitet, die Gegend auf der Wiese Mlaka aufsuchte, wo 
-derselbe gefallen war, um den Grund nach sorgfaltig nach etwa 
-abgetrennten Bruchstücken zu untersuchen. In der That fand er 
-eine Anzahl kleiner flacher Meteorsteinsplitter. Auf dem festen Boden 
-des Loches selbst fand er vier größere Splitter die flach waren und 
-über ein Pfund wogen, dann seitwärts noch ein Stück anderthalb 
-Pfund schwer. 
+Herr A. Pukáts hatte im Verlaufe seiner Arbeiten ebenfalls vielfach, von mir auch noch besonders dazu ersucht, Fragen an die Bewohner gestellt, unter andern namentlich auch in Bezug auf die Temperatur der Steine möglichst gleich nach dem Herabfallen. Eine der Mitteilungen ist zu charakteristisch in mehrerer Beziehung als daß ich sie nicht hier vorlegen sollte.
 
-7. littheilugfen des lerrii A. Pak Ais. 
+1\. "Mochnaly Jurko," fragt Herr Pukáts, sagt mir, "habt Ihr gesehen wie nach dem Knalle ein Stein gefallen ist?"
 
-Herr A. Pukäts hatte im Verlaufe seiner Arbeiten ebenfalls 
-vielfach, von mir auch noch besonders dazu ersucht, Fragen an die 
-Bewohner gestellt, unter andern namentlich auch in Bezug auf die 
-Temperatur der Steine möglichst gleich nach dem Herabfallen. Eine 
-der Mittheilungen ist zu charakteristisch in mehrerer Beziehung als 
-daß ich sie nicht hier vorlegen sollte. 
+Antw. Wir waren, guter Herr, damals viele dabei zugegen. Als der Stein gefallen ist, sagte mein Weib: Schau nur, schau jetzt ist ein Stein gefallen! Eh! Laß Ruh, sagte ich, es ist Gottes Macht, und es ist Sünde einen solchen Stein aufzuheben, denn ich war sehr erschrocken!
 
-1. "Mochnaly Jurko**, fragt Herr Puk&ts, sagt mir, "habt 
-Ihr gesehen wie nach dem Knalle ein Stein gefallen ist?** 
+Fr. Aber Ihr habt ihn doch aufgehoben! War er heiß?
 
-A ntw. Wir waren, guter Herr, damals viele dabei zugegen. Als 
-der Stein gefallen ist, sagte mein Weib: Schau nur, schau jetzt ist 
-ein Stein gefallen! EhI Laß Ruh, sagte ich, es ist Gottes Macht, 
-und es ist Sünde einen solchen Stein aufzuheben, denn ich war sehr 
-erschrocken I 
+Antw. Ja, Herr, ich habe ihn aufgehoben, aber er war nicht heiß, blos gewöhnlich warm, wie von der Sonne erwärmt.
 
-Fr. Aber Ihr habt ihn doch aufgehoben! War er heiß? 
+Der Stein hatte etwa die Größe eines Hühnereies.
 
-Antw. Ja, Herr, ich habe ihn aufgehoben, aber er war nicht 
-heiß, blos gewöhnlich warm, wie von der Sonne erwärmt. 
-
-Der Stein hatte etwa die Größe eines Hühnereies.*' 
-
-Ich muß hier bemerken, daß zwar eine große Scheu, selbst 
-Furcht sich unter der Bevölkerung bemerkbar machte, daß aber wie 
-hier die Gattin sich fast unternehmender zeigte, als ihr Ehegenosse, 
-so auch mehrfach früher von Frauen und Kindern die Rede war. 
-Davon aber war keine Rede, daß wie ich in einem Berichte las 
-»Weiber und Kinder erschreckt zu Boden stürzten und zitternd den 
-Weltuntergang erwarteten*'. Das ist einfach eine Fabel. Ich habe in 
-
-einem Schreiben an den Regalienpaehter Ignaz Feuermann, 
-welches auch Herrn k. k. Waldbereiter Pokorny vorgelegt worden 
-ist, die unmittelbare Frage gestellt, ob auch nur Ein Beispiel eines 
-solchen "zu Boden Sturzens** namentlich aufgeführt werden könne, 
-und es ist mir eine solche Thatsache nicht bestätigt worden. Wozu 
-aber Berichte über wahre wunderrolle Naturerscheinungen mit 
-Fabeln ausschmucken wollen!? 
+Ich muß hier bemerken, daß zwar eine große Scheu, selbst Furcht sich unter der Bevölkerung bemerkbar machte, daß aber wie hier die Gattin sich fast unternehmender zeigte, als ihr Ehegenosse, so auch mehrfach früher von Frauen und Kindern die Rede war. Davon aber war keine Rede, daß wie ich in einem Berichte das "Weiber und Kinder erschreckt zu Boden stürzten und zitternd den Weltuntergang erwarteten." Das ist einfach eine Fabel. Ich habe in einem Schreiben an den Regalienpächter Ignaz Feuermann, welches auch Herrn k. k. Waldbereiter Pokorny vorgelegt worden ist, die unmittelbare Frage gestellt, ob auch nur Ein Beispiel eines solchen "zu Boden Stürzens" namentlich aufgeführt werden könne, und es ist mir eine solche Tatsache nicht bestätigt worden. Wozu aber Berichte über wahre wundervolle Naturerscheinungen mit Fabeln ausschmücken wollen!?
 
 2. Petrik Vasyl. Ich übergehe hier noch nele einzelne An- 
 gaben, welche nur das im Vorhergehenden Enthaltene bestätigen, 
