@@ -324,311 +324,128 @@ Der Stein hatte etwa die Größe eines Hühnereies.
 
 Ich muß hier bemerken, daß zwar eine große Scheu, selbst Furcht sich unter der Bevölkerung bemerkbar machte, daß aber wie hier die Gattin sich fast unternehmender zeigte, als ihr Ehegenosse, so auch mehrfach früher von Frauen und Kindern die Rede war. Davon aber war keine Rede, daß wie ich in einem Berichte das "Weiber und Kinder erschreckt zu Boden stürzten und zitternd den Weltuntergang erwarteten." Das ist einfach eine Fabel. Ich habe in einem Schreiben an den Regalienpächter Ignaz Feuermann, welches auch Herrn k. k. Waldbereiter Pokorny vorgelegt worden ist, die unmittelbare Frage gestellt, ob auch nur Ein Beispiel eines solchen "zu Boden Stürzens" namentlich aufgeführt werden könne, und es ist mir eine solche Tatsache nicht bestätigt worden. Wozu aber Berichte über wahre wundervolle Naturerscheinungen mit Fabeln ausschmücken wollen!?
 
-2. Petrik Vasyl. Ich übergehe hier noch nele einzelne An- 
-gaben, welche nur das im Vorhergehenden Enthaltene bestätigen, 
-doch kann ich noch beifQgen, daß der bei Petrik Vasyl auf ein 
-Tuch gefallene Stein etwa die Große einer Pflaume hatte und keine 
-Spur von Versengungen oder Verbrennen zu bemerken war. 
-
-3. Herr Pukäts kommt noch einmal auf die Intensität des 
-Hauptschalles zu sprechen und gibt an, daß er ihm keinen so unge- 
-wöhnlichen Eindruck gemacht, auch mehrere Zeugen sprachen wie 
-von einem Flintenschuß, und doch schien es, als hätte die Erde 
-gezittert, und man hat die Fenster klirren gebort »Aber es war 
-auch ein ganz eigenthümlich scharfer Knall anzuhören, und weithin 
-hörbar'*. 
+2\. Petrik Vasyl. Ich übergehe hier noch viele einzelne Angaben, welche nur das im Vorhergehenden Enthaltene bestätigen, doch kann ich noch beifügen, daß der bei Petrik Vasyl auf ein Tuch gefallene Stein etwa die Größe einer Pflaume hatte und keine Spur von Versengungen oder Verbrennen zu bemerken war.
 
-4. Gemeinde Zboy. Von Beobachtungen des Falles aus nächster 
-Nähe gehört hieher noch die von Herrn Pukäts freundlichst mit- 
-getheilte Thatsache, daß von der Gemeinde Zboy aus, eine Meile 
-nordnordwestlich von Knyahinya, der fürstlich Lobkowitz*sche 
-Förster Herr Weisz nur einen Rauchstreifen gesehen hat Auch der 
-griechisch-katholische Pfarrer Herr Balogh, und der k. k. Kata- 
-stral-Geometer Herr Kali hatten den Knall gehört, niemand aber 
-einen Feuerstreifen gesehen. 
+3\. Herr Pukáts kommt noch einmal auf die Intensität des Hauptschalles zu sprechen und gibt an, daß er ihm keinen so ungewöhnlichen Eindruck gemacht, auch mehrere Zeugen sprachen wie von einem Flintenschuß, und doch schien es, als hätte die Erde gezittert, und man hat die Fenster klirren gehört. "Aber es war auch ein ganz eigentümlich scharfer Knall anzuhören, und weithin hörbar."
 
-8. Terihellang; der gfefalleneB Steine aif der •berllcke. 
+4\. Gemeinde Zboy. Von Beobachtungen des Falles aus nächster Nähe gehört hieher noch die von Herrn Pukáts freundlichst mitgeteilte Tatsache, daß von der Gemeinde Zboy aus, eine Meile nordnordwestlich von Knyahinya, der fürstlich Lobkowitz'sche Förster Herr Weisz nur einen Rauchstreifen gesehen hat. Auch der griechisch-katholische Pfarrer Herr Balogh, und der k. k. Katastral-Geometer Herr Kali hatten den Knall gehört, niemand aber einen Feuerstreifen gesehen.
 
-Es schließt sich hier wohl am besten an, der Nachweisung zu 
-gedenken über die Lage der größeren der in der Umgebung gefun- 
-denen Steine, theils nach den Angaben des Herrn Pukäts, theils 
-und vorzüglich nach dem Plane des Herrn Negedlo. Aus dem 
-letztern in einem größeren Maßstabe entworfenen habe ich dieselben 
-in den mir freundlichst von ersterem mitgetheilten Plan Fig. 1 (Seite 
-6) übertragen. Die Fallpunkte der Steine sind durch kleine Quadrate 
-bezeichnet, und unter denselben das Pfundgewicht der Steine ange- 
-geben. Westlich von der Mühle am Sztricsava-Bache, auf einer 
+### 8. Verteilung der gefallenen Steine auf der Oberfläche.
 
-Wiese gegen deo Hügel Horbek soll ein ansehnlicher Stein gefallen 
-sein, den man indessen ungeachtet rielialtiger Nachsuchungen nicht 
-auffinden konnte. 
+Es schließt sich hier wohl am besten an, der Nachweisung zu gedenken über die Lage der größeren der in der Umgebung gefundenen Steine, teils nach den Angaben des Herrn Pukáts, teils und vorzüglich nach dem Plane des Herrn Negedlo. Aus dem letztern in einem größeren Maßstabe entworfenen habe ich dieselben in den mir freundlichst von ersterem mitgeteilten Plan Fig. 1 (Seite 6) übertragen. Die Fallpunkte der Steine sind durch kleine Quadrate bezeichnet, und unter denselben das Pfundgewicht der Steine angegeben. Westlich von der Mühle am Sztricsava-Bache, auf einer Wiese gegen den Hügel Horbek soll ein ansehnlicher Stein gefallen sein, den man indessen ungeachtet vielfältiger Nachsuchungen nicht auffinden konnte.
 
-9. Bericht des lern Dr. t. Zsir« an lerm Tavernicas Baran 
-T, Seinyey. 
+### 9. Bericht des Herrn Dr. v. Zsiro an Herrn Tavernicus Baron v. Sennyey.
 
-Es wurde bereits in meiner ersten Mittheilung am 12. Juli der 
-Thatsache gedacht, daß auf Veranlassung des Herrn Tavernicus Baron 
-V. Sennyey, von Herrn Comitats-Oberarzt Dr. v. Zsiro Erhebungen 
-gepflogen wurden. Ein Bericht ist seitdem entsprechend abgesandt 
-worden. Diesem kann ich nun, aus der von Herrn Prof. Borna th 
-gütigst besorgten Übersetzung noch einige ergänzende Angaben 
-entnehmen. Die Erscheinungen des Falles selbst sind dort allerdings 
-summarisch gegeben, wenn man auch zur Erhebung eine Anzahl yon 
-sieben Bewohnern von Knyahinya, den Ortsrichter Zsilkonics 
-Mihälyld mit inbegrifTen versammelte. Sie stimmen übrigens gut mit 
-den einzelnen Aussagen, welche ich aber nach den freundlichen 
-Mittheilungen der Herren Pokorny, Pukäts und Negedlo 
-vorlegte. 
+Es wurde bereits in meiner ersten Mitteilung am 12. Juli der Tatsache gedacht, daß auf Veranlassung des Herrn Tavernicus Baron v. Sennyey, von Herrn Comitats-Oberarzt Dr. v. Zsiro Erhebungen gepflogen wurden. Ein Bericht ist seitdem entsprechend abgesandt worden. Diesem kann ich nun, aus der von Herrn Prof. Bernáth gütigst besorgten Übersetzung noch einige ergänzende Angaben entnehmen. Die Erscheinungen des Falles selbst sind dort allerdings summarisch gegeben, wenn man auch zur Erhebung eine Anzahl von sieben Bewohnern von Knyahinya, den Ortsrichter Zsilkonics Mihályló mit inbegriffen versammelte. Sie stimmen übrigens gut mit den einzelnen Aussagen, welche ich aber nach den freundlichen Mitteilungen der Herren Pokorny, Pukáts und Negedlo vorlegte.
 
-Die Angabe, daß die entstandene Wolke die Größe eines Men- 
-schen hatte, dann daß sie acht Klafter lang und vier Klafter breit 
-gewesen sei, kann wohl nicht einer Größenschätzung zu Grunde 
-gelegt werden. 
+Die Angabe, daß die entstandene Wolke die Größe eines Menschen hatte, dann daß sie acht Klafter lang und vier Klafter breit gewesen sei, kann wohl nicht einer Größenschätzung zu Grunde gelegt werden.
 
-Auch die Stärke der Detonation ist wohl je nach Standpunkt und 
-Individualität sehr verschieden beurtheilt worden, von einigen als ein 
-allerdings scharfer Schuß, von anderen als wären hundert Kanonen 
-zugleich abgefeuert worden. Nur die letzte Angabe war in dem 
-Berichte aufgenommen worden. 
+Auch die Stärke der Detonation ist wohl je nach Standpunkt und Individualität sehr verschieden beurteilt worden, von einigen als ein allerdings scharfer Schuß, von anderen als wären hundert Kanonen zugleich abgefeuert worden. Nur die letzte Angabe war in dem Berichte aufgenommen worden.
 
-Die Fläche, auf welche Meteorsteine fielen, wird mit ungefähr 
-einer Länge von 1800 Klaftern, und Breite von 400 Klaftern abge- 
-schätzt. Aus dem Plane Fig. 1, Seite 6, würde sie etwa zwei Meilen 
-Länge und dreivieiiel Meilen Breite betragen. 
+Die Fläche, auf welche Meteorsteine fielen, wird mit ungefähr einer Länge von 1800 Klaftern, und Breite von 400 Klaftern abgeschätzt. Aus dem Plane Fig. 1, Seite 6, würde sie etwa zwei Meilen Länge und dreiviertel Meilen Breite betragen.
 
-Der Bericht gibt werthvolle Nachweisungen über die Auffindung 
-und damalige Vertheilung der gefallenen Steine. 
+Der Bericht gibt wertvolle Nachweisungen über die Auffindung und damalige Verteilung der gefallenen Steine.
 
-Besitzer die Herrn Gefunden von Gewicht 
+| Besitzer die Herrn                      | Gefunden von            | Gewicht  |
+|-----------------------------------------|-------------------------|----------|
+| Pfarrer Joseph Gerzanics,               | Baran Jurko, Knyahinya, | 2 Pfd.   |
+| Anton Pokorny, Feuermann Ignaz, Knyah., | 9 1/2 Pfd.              |          |
+| Dr. Lorenz Riczko, Unghvár,             | Magd des Feuermann,     | 17 Pfd.  |
 
-Pfarrer Joseph Gerzanics, Baran Jurko, Knyahinya, 2 Pfd. 
-Anton Pokorny, Feuermann Ignaz, Knyah., B«/, ^ 
+Ein Stein schlug das Dach des Stalles in der Pfarrei zu Knyahinya durch, und wurde auf dem Fußboden liegend gefunden, abgegeben in das Seminar zu Unghvár. 1/2 Pfd.
 
-Dr. Lorenz Riczko, Unghvär, Magd des Feuermann, 17 " 
+Ein Stein gefunden von Dahulics Ivan, dem Commissionsbericht beigelegt. 5 1/2 Pfd.
 
-Ein Stein schlug das Dach des Stalles in der Pfarrei zu 
-Knyahinya durch, und wurde auf dem Fußboden lie- 
-gend gefunden, abgegeben in das Seminar zu Ungbrir. y« Pfd. 
-Ein Stein gefunden von Dahulics Ivan, dem Commissions- 
+8 Stücke, teils von Herrn Dr. v. Zsiro erworben, teils dem Bericht beigelegt. 1 1/2 Pfd.
 
-bericht beigelegt ^Vi » 
+1 Stück Dr. L. Riczko, Unghvár ohne Gewichtsangabe.*
 
-8 Stucke, theils von Herrn Dr. v. Zsiro erworben, theils 
+1 Stück Ingenieur Coloman Toth. 4 Pfd.
 
-dem Bericht beigelegt 1 % " 
+4 Stücke Ingenieur Karl Wiedmann, 6 1/2, 2, 1 1/2, 1 Pfd.
 
-1 Stück Dr. L. Riczko, Unghvär ohne Gewichtsangabe, i) 
+Unghvár. 11 Pfd.
 
-1 " Ingenieur Coloman Toth 4 " 
+1 Stück Apotheker Ludwig Bene, Unghvár. 1/2 Pfd.
 
-4 Stücke Ingenieur Karl Wiedmann, 6«/,, 2, 1«/«. 1 Pfd. 
+1 Stück A. Pukáts, N. B. 3/4 Pfd.
 
-Unghvär 11 " 
+12 Stücke W. Negedlo, 12 St. N. B. zusammen. 5 Pfd.
 
-1 Stück Apotheker Ludwig Bene, Unghvär Vz >• 
+1 Stück Direktor Riedel, Remete. 1/2 Pfd.
 
-1 " A. Pukäts, N. B «A " 
+6 Stücke A. Pokorny, die 6 Stücke zusammen. 13 1/2 Pfd.
 
-12 Stücke W. Negedlo, 12 St. N. B. zusammen . . . . S " 
+1 Stück von 7 1/2 Pfund hatte Herr Pokorny an das k. k. Finanz-Ministerium nach Wien gesandt. 7 1/2 Pfd.
 
-1 Stück Director Riedel, Remote Va » 
+2 Stücke Prof. Hazslinszky 1 Pfd., Hollender 27 Lth. Eperies. 1 3/4 Pfd.
 
-6 Stücke A. Pokorny, die 6 Stücke zusammen . . . .13% " 
+2 Stück Ingen. F. Kistler Unghvár, 1 St. 12 Lth., 1 St. 13 Lth. und noch mehrere.* 1 Pfd.
 
-1 Stück von 7</2 Pfund hatte Herr Pokorny an das k. k. 
+27 Stück Herr Prof. Alexander Duma sammelte vom Volke 27 Stück, an die Ung. Akad. in Pest gesandt zusammen. 28 Pfd.
 
-Finanz-Ministerium nach Wien gesandt 7^/« " 
+= 72 Stücke. 100 1/2 Pfd.
 
-2 Stücke Prof. Hazsiinszky 1 Pfd., Hollender 27 Lth. Eperies 1 s/4 Pfd. 
-2 " Ingen. F. Kistler Unghvär, 1 St. 12 Lth., 1 St. 
+Herr Dr. v. Zsiro verzeichnet noch namentlich nach den Besitzern fünf kleine Stücke, und schätzt die damals gefundene Gesammtzahl der Stücke auf achtzig, das Gesammtgewicht auf anderthalb Zentner.
 
-13 Lth. und noch mehrere >} 1 « 
+Viele Stücke sind begreiflich nach verschiedenen Richtungen hin verteilt worden.
 
-27 " Herr Prof. Alexander Duma sammelte vom 
-Volke 27 Stück, an die Ung. Akad. in Pest 
+*) Herr Dr. Lorenz Riczko übersandte später ein Stück von 1 1/8 Pfd. als freundliches Geschenk, nebst einem Berichte über den Fall an das k. k. Hof-Mineralienkabinet in Wien. Von einem in seinem Besitze nach früheren Angaben befindlichen Steine von angeblich 27 Pfund ist hier keine Rede mehr.
 
-gesandt zusammen 28 " 
+*) Nach verschiedenen Mitteilungen hatte Herr F. Kistler damals schon 1 Stück von 17 1/2 Loth an das k. k. Hof-Mineralienkabinet gesandt. (Sitzung d. kais. A. d. W. am 12. Juli), sodann auch (14 1/2 Loth) an die k. k. geologische Reichsanstalt und an Herrn Prof. Kriesch in Ofen (15 3/4 Loth).
 
-72 Stücke lOOV, PW. 
+### 10. Letzte Nachrichten über Anzahl und Grösse der Steine.
 
-Herr Dr. v. Zsiro verzeichnet noch namentlich nach den 
-Besitzern fünf kleine Stücke, und schätzt die damals gefundene 
-Gesammtzahl der Stücke auf achtzig, das Gesammtgewicht auf 
-anderthalb Centner. 
+In neuester Zeit, mit Datum vom 24. September schätzt Herr W. Negedlo, folgende Ziffern:
 
-Viele Stücke sind begreiflich nach verschiedenen Richtungen 
-hin vertheilt worden. 
+|                                                    |               |
+|----------------------------------------------------|---------------|
+| 1 Stück                                            | 550 Pfd.      |
+| 1 Stück mit je 73 1/2, 30, 17, 14, 6 Pfd. zusammen | 140 1/2 Pfd.  |
+| 20 Stück zwischen 4 und 2 Pfd.                     | 60 Pfd.       |
+| kleinere an die                                    | 100 Pfd.      |
+| ~                                                  | 850 1/2 Pfd.  |
 
-i) Herr Dr. Lorenz Riczko flbersandte ipiter ein Stfick Ton iVg Pfd. als freund* 
-liches Geschenk, nebst einem Berichte über den Fall an das k. k. Hof-Mineralien- 
-cabinet in Wien. Von einem in seinem Besitze nach früheren Angaben befindlichen 
-Steine Ton angeblich 27 Pfund ist hier keine Rede mehr. 
+Herr Negedlo selbst besaß an jenem Tage noch einen Rest von 33 Stück, zwischen 2 1/2 und 1 Loth, zusammen gegen 16 Pfund. Er hatte mir freundlichst 9 kleine ganze Steine zusammen 10 7/8 Loth, sowie 22 Bruchstücke gesandt, mit den vorigen zusammen 24 1/8 Loth, unter diesen 16 Splitter, welche bei dem Falle des großen Steines von 550 Pfund abgestossen worden waren.
 
-S) Nach Tcrschiedenen Mittheilungen hatte Herr F. Kistler damals schon 1 Stuck toü 
-17 ^^2 ^^^^ *" ^*' ^* ^* Hof-Mineraliencabinet gesandt. (Sitzung d. kais. A. d. W. 
-am 12. Juli), sodann auch (i^yz Loth) an die k. k. geologische Reichsanstalt und 
-an Herrn Prof. Krlesch in Ofen (15 V4 Loth). 
+Recht sehr dankbar bin ich meinem hochverehrten Freunde, Herrn Direktor Hörnes welcher mir zur Ansicht eine Anzahl von 16 Stücken, Eigenthum des Herrn Samuel Egger (Antiquitäten-Handlung, Herrengasse Nr. 5) übersandte, mit folgendem Gewichte: je ein Exemplar zu 24 Pfd. 16 Lth., 15 Pfd. 21 1/2 Lth., 9 Pfd. 19 1/2 Lth., 5 Pfd. 3 1/2 Lth., 4 Pfd. 5 1/2 Lth., 1 Pfd. 22 3/4 Lth., 1 Pfd. 18 Lth., je zwei zu 14 Lth., je eines zu 9, 6 1/2, 5 3/4, 4 3/4, 2 1/2, 1 3/4, 1 Loth.
 
+Das größte Stück ist halb von Bruchflächen begrenzt, die übrigen sind sämmtlich ursprünglich vollständig umrindete, sogenannte "ganze Steine," aber keiner davon ohne zahlreiche Beschädigungen durch abgesprengte Splitter, an den Kanten sowohl, als auch stellenweise auf den Seitenflächen.
 
-Der Meteoraieinfall am 9. Jodi 1866 bei Knyahinjra. 499 
+Wirft man einen Blick auf diese verschiedenen Schätzungen zu verschiedener Zeit, und erwägt, daß so sehr viele Funde sich der Bekanntwerdung entziehen mußten, so darf man wohl in runden Zahlen den Fall von über Eintausend einzelnen Steinen mit einem Gesammtgewichte von acht bis zehn Zentner annehmen. Derselbe verbreitete sich über einen länglich von Nordost gegen Südwest gestreckten Raum von etwa 8000 Klafter Länge, und einer Breite von etwa 3000 Klaftern.
 
-!•. Letite Nachrichteii Aber Amahl and firisse der Steine, 
+### 11. Beschaffenheit der Steine.
 
-In neuester Zeit, mit Datum vom 24. September schätzt Herr 
-W. Negedlo, folgende Ziffern: 
+Die Steine fielen alle einzeln herab. Es war nicht das Ganze Ein Stein, der etwa zersprang, und durch das Zerspringen Veranlassung zu der Knallerscheinung gab, sondern jeder der Steine fiel einzeln. Vor dem Eintritte in den Raum der Atmosphäre, waren sie freilich dicht auf einen Klumpen geschlossen, aber hier fanden sie Widerstand, das Kleine mehr als das Große, so wurden sie von einander getrennt. Zu allererst blieb das staubförmige als Nebelwolkenspur zurück. Jeder einzelne Stein von denen, welche herabfielen und aufgefunden wurden ist mit seiner Rinde rundum bekleidet, von den größten beginnend, bis zu dem oben erwähnten Exemplare von 1/8 Loth (genauer gewogen 2.245 Gr.) Gewicht --- welches von der sieben Jahre alten Maria Mohnar aus Sztricsava gefunden wurde, und das ich Herrn Negedlo verdanke. Aber sie sind sämmtlich beschädigt. Es ist wohl ganz natürlich daran zu denken, daß diese Beschädigungen während des zweiten Teiles der Schallerscheinungen, nach dem ersten Schlage also, in welchem das Vakuum sich bei der Verlangsamung der früheren --- im Raume planetaren --- Geschwindigkeit schloß, und die Steine vielfach aneinander stießen. Jeder Stein für sich muß durch das entgegenstehende Hinderniß der Atmosphäre entsprechend seiner Gestalt eine rotirende Bewegung annehmen, deren Axe die Richtung des Falles ist. Unter den Stücken, welche ich Herrn Negedlo verdanke, befindet sich eines von nur 2 1/8 Loth, welches dennoch als Beweis dienen kann, daß es seinen ganzen Weg vollständig unbeirrt und unabhängig durchgeführt. Es muß um die Axe _CC′_ rotirt haben, _C_ immer voran im Raume. Die Kanten von _A_ bis _B_ herum sind die schärfsten, die Linien _AA′_, _BB′_ gehen durch den Schwerpunkt der voran im Raume sich bewegen muß. Der Querschnitt senkrecht auf _CC′_ ist scharf dreiseitig. Vom Mittelpunkte _C_ ausgehend sieht man zarte Linien auf der Oberfläche gegen den Rand _AB_ auslaufend, an den Kanten bei den Punkten _A_ und _B_ zeigen sich deutlich ausgesprochene, rückwärts gestülpte Schmelzrindengrate, ähnlich wie ich sie für Stannern beschrieb,* nur weniger auffallend hier, wo die Rindensubstanz so viel weniger leichtflüssig ist. Die Rückenfläche weniger glänzend überrindet, außer stellenweise, wo man kleine Schmelzbruchstücke wahrzunehmen versucht wäre, wie dies namentlich in der zweiten der obigen Mitteilungen nachgewiesen wurde.
 
-1 Stück 880 Pfd. 
+*) Eine Leitform der Meteoriten. Sitzung am 19. April 1860. Sitzungsb. d. kais. Akad. d. Wissensch. mathem.-naturw. Kl. Bd. 40. S. 525. --- Stannern. Ein zweiter Meteorstein, durch seine Rinde genau in seiner kosmischen Bahn orientirt. Sitzung am 22. Mai 1862. Sitzungsb. Bd. 45. S. 791.
 
-1 " mit je 73 y" 30, 17, 14, 6 Pfd. zusammen 140 V, " 
+[Fig. 7.]()
 
-20 " zwischen 4 und 2 Pfd . 60 
+Auch bei einem der größeren Stücke von 1 Pfund 18 Loth, im k. k. Hof-Mineralienkabinet sind Orientirungsspuren vorhanden.
 
-kleinere an die 100 " 
+### 12. Der große Stein.
 
-880«/, Pfd. 
+Merkwürdig aber vor allen anderen Stücken ist das gewaltige von dem Gewichte, wie es sich jetzt zeigt von nahezu sechs Zentner, welches von Herrn Pukáts ausgegraben wurde, worüber er einen so anziehenden, lehrreichen Bericht erstattete.
 
-Herr Negedlo selbst besaß an jenem Tage noch einen Rest 
-Yon 33 Stück, zwischen %^l^ und 1 Loth, zusammen gegen 16 Pfund. 
-Er hatte mir freundlichst 9 kleine ganze Steine zusammen lOYs Loth, 
-sowie 22 Bruchstücke gesandt, mit den Torigen zusammen 24 «/g Loth, 
-unter diesen 16 Splitter, welche bei dem Falle des großen Steines von 
-880 Pfund abgestossen worden waren. 
+Das Stück ist nun, aus vier Bruchstücken bestehend, im k. k. Hof-Mineralienkabinete zusammengestellt. Herr Direktor Dr. M. Hörnes hatte in der heutigen Sitzung Abbildungen desselben zur Ansicht vorgelegt, sowohl in natürlicher Größe, als auch auf Ein Drittel derselben verkleinert, so wie sie dem gegenwärtigen Berichte, der Aufstellung entsprechend, in Taf. 1. von der Vorderseite, und in Taf. 2. von der Rückseite, beigelegt sind:
 
-Recht sehr dankbar bin ich meinem hochverehrten Freunde, 
-Herrn Director Hörnes welcher mir zur Ansicht eine Anzahl 
-von 16 Stücken, Eigenthum des Herrn Samuel Egger (Antiquitäten- 
-Handlung, Herrengasse Nr. 8) übersandte, mit folgendem Gewichte: 
-je ein Exemplar zu 24 Pfd. 16 Lth., 18 Pfd. 21% Lth.. 9 Pfd. 
-19V, Lth., 8 Pfd. 3V, Lth., 4 Pfd. 8«/, Lth., 1 Pfd. 22V4 Lth., 
-1 Pfd. 18 Lth., je zwei zu 14 Lth., je eines zu 9, 6^/,, 8</4, 4^/4, 
-2*A, 1»A» 1 Loth. 
+Folgende Maaßen wurden abgenommen: Länge 2 Fuß 4 1/4 Zoll, Breite 1 Fuß 4 Zoll, Dicke 1 Fuß 6 Zoll.
 
-Das größte Stück ist halb von Bruchflachen begrenzt, die 
-übrigen sind sämmtlich ursprünglich vollständig umrindete, sogenannte 
-nganze Steine**, aber keiner davon ohne zahlreiche Beschädigungen 
-durch abgesprengte Splitter, an den Kanten sowohl, als auch stellen- 
-weise auf den Seitenflächen. 
+Herr Direktor Hörnes gibt ebenfalls folgende Gewichte, und zwar abgenommen in Zollpfund zu 30 Zollloth:
 
-Wirft man einen Blick auf diese verschiedenen Schätzungen zu 
-verschiedener Zeit, und erwägt, daß so sehr viele Funde sich der Be- 
-kanntwerdung entziehen mußten, so darf man wohl in runden Zahlen 
-den Fall von über Eintausend einzelnen Steinen mit einem Gesammt- 
-gewichte von acht bis zehn Centner annehmen. Derselbe ver- 
-breitete sich über einen länglich von Nordost gegen Südwest 
-gestreckten Raum von etwa 8000 Klafter Länge, und einer Breite 
-Yon etwa 3000 Klaftern. 
+| ~                                                  | Zoll-Pfund       | Kilogrammen |
+|----------------------------------------------------|------------------|-------------|
+| 1. Größeres Stück, rechte Seite der Vorder-Ansicht | 283 Pfd. 20 Lth. | 141.833     |
+| 2. Kleineres Stück, linke Seite                    | 271 Pfd. 5 Lth.  | 135.583     |
+| 3. Ein kleines losgebrochenes Stück                | 4 Pfd. 21 Lth.   | 2.350       |
+| ~                                                  | 559 Pfd. 16 Lth. | 279.766     |
 
-11. Besckaffeoheit der Steile. 
+Diese drei Stücke entielt die von Herrn k. k. Waldbereiter Anton Pokorny von Nagy Berezna an das k. k. Hof-Mineralienkabinet geleitete Sendung.
 
-Die Steine fielen alle einzeln herab. Es war nicht das Ganze 
-Ein Stein» der etwa zersprang, und durch das Zerspringen Veran- 
-lassung zu der Knallerscheinung gab, sondern jeder der Steine fiel 
-einzeln. Vor dem Eintritte in den Raum der Atmosphäre, waren sie 
-freilich dicht auf einen Klumpen geschlossen, aber hier fanden sie 
-Widerstand, das Kleine mehr als das Große, so wurden sie von ein- 
-ander getrennt. Zu allererst blieb das staubförmige als Nebelwolken- 
-spur zurück. Jeder einzelne Stein von denen, welche herabfielen und 
-aufgefunden wurden ist mit seiner Rinde rundum bekleidet, von den 
-größten beginnend, bis zu dem oben erwähnten Exemplare von «/g 
-Loth (genauer gewogen 2*245 Gr.) Gewicht --- welches von der sieben 
-Jahre alten Maria Mohnar aus Sztricsava gefunden wurde, und das 
-ich Herrn Negedlo verdanke. Aber sie sind sämmtlich beschädigt. 
-Es ist wohl ganz natürlich daran zu denken, daß diese Beschädigungen 
-während des zweiten Theiles der Schallerscheinungen, nach dem ersten 
-Schlage also, in welchem dasVacuum sich bei der Verlangsamung der 
-früheren --- im Räume planetaren --- Geschwindigkeit schloß, und die 
-Steine vielfach aneinander stießen. Jeder Stein für sich muß durch 
-das entgegenstehende Hinderniß der Atmosphäre entsprechend seiner 
-Gestalt eine rotirende Bewegung annehmen, deren Axe die Richtung 
-des Falles ist. Unter den Stücken, welche ich Herrn Negedlo ver- 
-danke, befindet sich eines von nur 2% Loth, welches dennoch als 
+Ausserdem fand sich noch ein Stein vor, im Zollgewichte von 27 Pfd. 13 Lth., 13K716, welcher oben in dem Verzeichnisse der in dem Besitz des Herrn Samuel Egger mit 24 1/2 Pfd. Wiener Gewicht angegeben ist, und welcher ganz fest an den größeren rechtsseitigen der beiden großen Steine anschließt. Das gefundene Gesammtgewicht ist demnach 586 Pfd. 29 Lth., 293K482.
 
-Beweis dienen kann, daß es seinen gan- 
-^* ' zen Weg vollständig unbeirrt und unab- 
-
-hängig durchgeführt. Es muß um die Axe 
-/^ CC rotirthaben, Cimmer voran imRaume. 
-Die Kanten von A bis B herum sind die 
-schäi'fsten, die Linien AÄ, Bti' gehen 
-, durch den Schwerpunkt der voran im 
-Räume sich bewegen muß. Der Quer- 
-schnitt senkrecht auf CC ist scharf drei- 
-seitig. Vom Mittelpunkte C ausgehend 
-sieht man zarte Linien auf der Oberfläche 
-gegen den Rand AB auslaufend, an den Kanten bei den Punkten A 
-und B zeigen sich deutlich ausgesprochene, rückwärts gestülpte 
-
-
-Der Heteorsteiiifiill am 9. Juni 1866 bei Knyahinyii. 501 
-
-Schmelzrindengrate, ähnlich wie ich sie für Stannern beschrieb 9, 
-nur weniger auffallend hier, wo die Rindensubstanz so yiel weniger 
-leichtflüssig ist. Die Rückenfläche weniger glänzend überrindet, außer 
-stellenweise, wo man kleine Schmelzbruchstücke wahrzunehmen ver- 
-sucht wäre, wie dies namentlich in der zweiten der obigen Mitthei- 
-lungen nachgewiesen wurde. 
-
-Auch bei einem der größeren Stücke yon 1 Pfund 18 Loth, im 
-k. k. Hof-Mineraliencabinet sind Orientirungsspuren yorhanden. 
-
-12. Der gr^ße Stein. 
-
-Merkwürdig aber vor allen anderen Stücken ist das gewaltige 
-yon dem Gewichte, wie es sich jetzt zeigt yon nahezu sechs Cent- 
-ner, welches yon Herrn Puk&ts ausgegraben wurde, worüber 
-er einen so anziehenden, lehrreichen Bericht erstattete. 
-
-Das Stück ist nun, aus vier Bruchstücken bestehend, im 
-k. k. Hof-Mineraliencabinete zusammengestellt, Herr Director Dr. M. 
-Hörn es hatte in der heutigen Sitzung Abbildungen desselben zur 
-Ansicht vorgelegt, sowohl in natürlicher Größe, als auch auf Ein 
-Drittel derselben verkleinert, so wie sie dem gegenwärtigen Berichte, 
-der Aufstellung entsprechend, in Taf. I von der Vorderseite, und in 
-Taf. n von der Rückseite, beigelegt sind: 
-
-Folgende Maaßen wurden abgenommen: Länge 2 Fuß 4^4 Zoll, 
-Breite 1 Fuß 4 Zoll, Dicke 1 Fuß 6 Zoll. 
-
-Herr Director H5rnes gibt ebenfalls folgende Gewichte, und 
-zwar abgenommen in Zollpfund zu 30 Zollloth : 
-
-ZoU-PfuDd Kilogrammen 
-
-1. Größeres Stück, rechte Seite 
-
-der Vorder-Ansicht . . . . 283 Pfd. 20 Lth. 141-833 
-
-2. Kleineres Stück, linke Seite . 271 " K " 138-683 
-
-3. Ein kleines losgebrochenes 
-
-Stück 4 " 21 " 2-3S0 
-
-889 Pfd. 16Lth. 279-766 
-
-
-1) Eine Leitform der Meteoriten. Sitzung am 19. April 1860. Sitznngsb. d. kais. Akad. 
-d. Wissensch. mathem.-naturw. Cl. Bd. XL. S. 525. --- Stannern. Ein zweiter 
-Meteorstein, durch seine Rinde genau in seiner kosmischen Bahn orientirt. Sitzung 
-•m 2t. Mti ISet. SiUungsb. Bd. XLV. S. 791. 
-
-Diese drei Stücke enthielt die von Herrn k. k. Waldbereiter 
-Anton Pokorny von Nagy Berezna an das k. k. Hof-Mineralien- 
-cabinet geleitete Sendung. 
-
-Ausserdem fand sich noch ein Stein vor, im ZoUgewichte von 
-27 Pfd. 13 Lth., 13K716, welcher oben in dem Verzeichnisse der in 
-dem Besitz des Herrn Samuel Egg er mit 24 y» Pfd. Wiener Gewicht 
-angegeben ist, und welcher ganz fest an den größeren rechtsseitigen 
-der beiden großen Steine anschließt. Das gefundene Gesammtgewicht 
-ist demnach 586 Pfd. 29 Lth., 293K482. 
-
-An der Trennung der größeren Stucke ist leicht ersichtlich, daß 
-viele Splitter abgesprengt wurden, welche nun fehlen. Auch fand in 
-der That, (s. Seite 495), Herr Negedlo noch vier größere Splitter, 
-jeden über EinPfund schwer und einen bis anderthalb Pfund schweren 
-Stein in der Ausgrabung, so daß das Gewicht des Ganzen sehr nahe 
-sechs Zoll centner oder 300 Kilogramm erreicht. 
+An der Trennung der größeren Stücke ist leicht ersichtlich, daß viele Splitter abgesprengt wurden, welche nun fehlen. Auch fand in der Tat, (s. Seite 495), Herr Negedlo noch vier größere Splitter, jeden über Ein Pfund schwer und einen bis anderthalb Pfund schweren Stein in der Ausgrabung, so daß das Gewicht des Ganzen sehr nahe sechs Zollzentner oder 300 Kilogramm erreicht.
 
 Man kann unmöglich daran zweifeln, daß der Meteorit ganz war, 
 nur Ein Stück, als er an der Oberfläche der Erde anlangte, auch daß 
