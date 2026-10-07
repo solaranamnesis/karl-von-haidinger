@@ -585,248 +585,72 @@ Ich muß nicht versäumen beizufügen, daß ich die landschaftliche Darstellung 
 
 2\. Kapi. Noch eine Darstellung, aus einer tiefern Stelle der Fallbahn verdanke ich ebenfalls dem Werke des Herrn Kolbay aus einer Beobachtung des Meteors zu Kapi, Fig. 4, Taf. 3., anderthalb Meilen nordöstlich von Eperies, nach der aufmerksamen Beobachtung des namentlich auch von Herrn Hazslinszky hochverehrten Biedermannes, Herrn Karl Rainer, Pächters des Gutsbesitzes zu Kapi. Nur ganz niedriges Hügelland liegt gegen Osten vor.
 
-Man glaubt aus dem Inhalte des Feuerballs das gewaltsame 
-Hinausschleudern kleinerer Körper durch die gewaltig rotirenden 
-großen Blöcke zu sehen, jeden noch von seiner eigenen kleinen 
-Vacuum- und Lichtsphäre umgeben, welche sodann in sich zusam- 
-menfällt, und den Eindruck erst des dunklen Roth, dann des undurch- 
-sichtigen grauen Rauches hinterläßt. 
+Man glaubt aus dem Inhalte des Feuerballs das gewaltsame Hinausschleudern kleinerer Körper durch die gewaltig rotirenden großen Blöcke zu sehen, jeden noch von seiner eigenen kleinen Vacuum- und Lichtsphäre umgeben, welche sodann in sich zusammenfällt, und den Eindruck erst des dunklen Roth, dann des undurchsichtigen grauen Rauches hinterläßt.
 
-Ein Funkensprühen aus dem obern Theile des bii*nförmigen 
-Meteors beobachtete nach Herrn Hazsiinszky *s Angabe auch Herr 
-Joseph von Benczur zu Magyaroska im Zempliner Comitat, drei 
-Meilen östlich von Eperies, wo der Horizont durch Hügel viel be- 
-schränkter ist als in Kapi. 
+Ein Funkensprühen aus dem obern Teile des birnförmigen Meteors beobachtete nach Herrn Hazslinszkys Angabe auch Herr Joseph von Benczur zu Magyaroska im Zempliner Comitat, drei Meilen östlich von Eperies, wo der Horizont durch Hügel viel beschränkter ist als in Kapi.
 
-3. Varallya. Herrn Kolbay verdanke ich noch den Bericht 
-über eine Aussage des Richters von Vitrallya, eine Meile östlich von 
-Eperies. Dieser Johann Bobak sagt aus: "Ich arbeitete mit sieben 
-Männern auf dem Felde, und war mit dem Gesichte gegen Sonnen- 
-aufgang gewendet, als ich etwas allmälig lichter werdendes Kopf- 
-großes beobachte^. Hier theilte er anHerrn Kolbay den Ort der Er- 
-scheinung am Himmel unter etwa 3K --- 40 mit und dieser entwarf 
-unter seiner Angabe die Zeichnungen, welche letzterer mir freundlichst 
-in Federzeichnung mittheilte, Taf. III, Fig. & a, b, c» welche aber 
+3\. Várallya. Herrn Kolbay verdanke ich noch den Bericht über eine Aussage des Richters von Várallya, eine Meile östlich von Eperies. Dieser Johann Bobak sagt aus: "Ich arbeitete mit sieben Männern auf dem Felde, und war mit dem Gesichte gegen Sonnenaufgang gewendet, als ich etwas allmälig lichter werdendes Kopfgroßes beobachte." Hier teilte er an Herrn Kolbay den Ort der Erscheinung am Himmel unter etwa 35-40° mit und dieser entwarf unter seiner Angabe die Zeichnungen, welche letzterer mir freundlichst in Federzeichnung mitteilte, Taf. 3., Fig. 5 _a_, _b_, _c_, welche aber hier in Übereinstimmung mit den farbigen Darstellungen Fig. 1-4 aus derselben Umgegend ebenfalls in Farben wieder gegeben sind.
 
-hier in Übereinstimmung mit den farbigen Darstellungen Fig. 1 --- 4 
-aus derselben Umgegend ebenfalls in Farben wieder gegeben sind. 
+Der beobachtete Körper "war mit seinem breitern Ende gegen die Erde zugekehrt, flog immer schneller und schneller zur Erde, es fing ihm ein Schweif zu wachsen an, und bald wurde das Ganze mehr als die Sonne leuchtend. Es rauchte der Schweif so, daß ein Wölkchen über ihm entstand. Später wurde der Schweif wieder kleiner, als aber "der Ball" zur Erde sich neigte, wuchs seitwärts ein Knoten aus, wie in Tafel 3., Fig. 5 _b_, sodann trennten sich zwei Teile von einander wie in Taf. 3., Fig. 5 _c_, an deren jedem nur noch eine Spur von Schweifen sichtbar blieb, desto größer aber wurde der Rauch, bis sie endlich hinter den Bergen verschwanden. Zwei Donner nach einander wurden gehört."
 
-Der beobachtete Körper "war mit seinem breitern Ende gegen 
-die Erde zugekehrt, flog immer schneller und schneller zur Erde» es 
-fing ihm ein Schweif zu wachsen an, und bald wurde das Ganze 
-mehr als die Sonne leuchtend. Es rauchte der Schweif so, daß ein 
-Wölkchen über ihm entstand. Später wurde der Schweif wieder 
-kleiner, als aber "der Ball*" zur Erde sich neigte, wuchs seitwärts 
-ein Knoten »us, wie in Tafel III, Fig. K 6, sodann trennten sich zwei 
-Theile von einander wie in Taf. III, Fig. 5 c, an deren jedem nur noch 
-eine Spur von Schweifen sichtbar blieb, desto größer aber wurde 
-der Rauch, bis sie endlich hinter den Bergen yerschwanden. Zwei 
-Donner nach einander wurden gehört''. 
+Herr Kolbay teilt ferner mit, daß Herr Jaskovits von Eperies das Meteor in der Ebene bei Kapi beobachtete, und zwar mit Anfangs- und Ende-Höhenwinkeln von etwa 45 bis 50° und von 5 bis 6°, ferner eine Schlußzerteilung der beiden Stücke in viele kleinere Stücke, "welche feurige Bänder nach sich ließen, und endlich ganz erloschen und verschwanden."
 
-HeiT Kolbay theilt ferner mit, daß Herr Jaskovits von 
-Eperies das Meteor in der Ebene bei Kapi beobachtete, und zwar 
-mit Anfangs- und Ende-Höhenwinkeln von etwa 45 bis 50^ und von 
-ö bis 6^, ferner eine Schlußzertheilung der beiden Stücke in viele 
-kleinere Stücke, "welche feurige Bänder nach sich ließen, und 
-endlich ganz erloschen und verschwanden**. 
+Auch von dem Pächter der Báhn schen Güter, Herrn Miskovszky in Tolcsemes bei Csipkes, zwei Meilen nördlich von Eperies, östlich von Szeben war das Meteor gesehen worden, und zwar so lebhaft, durch die Größe und scheinbare Nähe getäuscht, daß er sogleich Boten aussandte, um einen etwa herabgefallenen Stein zu suchen.
 
-Auch von dem Pächter der Bähn*scheu Güter, Herrn Mis- 
-kovszky in Tolcsemes bei Csipkes, zwei Meilen nördlich von 
-Eperies, östlich von Szeben war das Meteor gesehen worden, und 
-zwar so lebhaft, durch die Größe und scheinbare Nähe getauscht, 
-daß er sogleich Boten aussandte, um einen etwa herabgefallenen 
-Stein zu suchen. 
+Herr Kolbay gibt auch einige Schätzungen der scheinbaren Größen. Ihm selbst hatte das Meteor, als er es unter 68-70 Grad Höhe erblickte den vierten Teil des Vollmond-Durchmessers zu besitzen geschienen, bei einer Länge von Einem Monddurchmesser (Herr Kolbay bedient sich der Zeichen 3′′ und 1′, ich glaube nach dem Gewohnheits-Ausdrucke von 12 Zoll für den Durchmesser bei den Finsternissen unserer beiden Lichtkörper). Bei der tiefsten Stelle schätzte er den Durchmesser auf mehr als die Hälfte des Monddurchmessers, die Länge auf wohl zwei Monddurchmesser.
 
-Herr Kolbay gibt auch einige Schätzungen der scheinbaren 
-Größen. Ihm selbst hatte das Meteor, als er es unter 68---70 Grad 
-Höhe erblickte den vierten Theil des Vollmond-Durchmessers zu 
-besitzen geschienen, bei einer Länge von Einem Monddurchmesser 
-(Herr Kolbay bedient sich der Zeichen 3" und T, ich glaube nach 
-dem Gewohnheits-Ausdrucke von 12 Zoll lür den Durchmesser bei 
-den Finsternissen unserer beiden Lichtkörper). Bei der tiefsten 
-Stelle schätzte er den Durchmesser auf mehr als die Hälfte des 
-Monddurchmessers, die Länge auf wohl zwei Monddurchmesser. 
+Die Schätzung des von Herrn Kolbay vernommenen Richters von Várallya, Johann Bobak, gaben zwei und einen halben Monddurchmesser für den Durchmesser des Meteors, und nicht weniger als neun Monddurchmesser für die Länge des Schweifes. So wenig solche Schätzungen als Grundlagen zu Erörterungen betrachtet werden können, so glaubte ich denselben doch den kleinen Raum der ihnen hier gewidmet ist, nicht entziehen zu sollen, da sie eben auch Belege zu der großen Mannigfaltigkeit bilden, welche Erscheinungen dieser Art bei verschiedenen Individuen zurücklassen.
 
-Die Schätzung des von Herrn Kolbay vernommenen Richters 
-von Värallya, Johann Bobak, gaben zwei und einen halben Mond- 
-durchmesser für den Durchmesser des Meteors, und nicht weniger 
-als neun Monddurchmesser für die Länge des Schweifes« So wenig 
+### 8. Rakamaz, östlich von Tokay, 16 Meilen südwestlich von Knyahinya.
 
+Herr Karl Hirschbach, Verwalter auf der Staatsdomäne Tokay, dem ich die freundlichen Auskünfte verdanke, wurde von der Erscheinung des 9. Juni auf einer gegen Südosten gerichteten Fahrt in offenem Wagen überrascht, während seiner Beschäftigung zur Klassifizirung der eben gelegenen Wiesen der Gemeinde Rakamaz im Szabolcser Comitate. Er erblickte das Meteor, indem er sich links halb umwenden mußte.
 
-Der Meteorsteiofall mid 9. Juni 1866 bei KnyAhinya. 517 
+Es war "eine glänzend goldgelbe Kugel, welche obwohl ohne Zweifel im Fallen gewesen, da ihre Bewegung nach abwärts ging, doch eher verschwunden, als gefallen zu sein schien. Die anwesenden Landleute meinten, sie müße im Rakamazer Gebiete gefallen sein."
 
-solche Schätzungen als Grundlagen zu Erörterungen betrachtet 
-werden können, so glaubte ich denselben doch den kleinen Raum der 
-ihnen hier gewidmet ist, nicht entziehen zu sollen, da sie eben auch 
-Belege zu der großen Mannigtaltigkeit bilden, welche Erscheinungen 
-dieser Art bei verschiedenen Individuen zurücklassen. 
+Die Größe wird mit der eines Kindeskopfes verglichen. Wohl ist ein solcher Vergleich mißlich. Indessen gibt ein Durchmesser von 4-5 Zoll bei 38-42.2 Fuß Entfernung die scheinbare Mondesgröße von 30 Bogenminuten.
 
-8. Kakamu, östlich von Tokay, 16 leilen sfidwestlleh von injahinya. 
+Die Kugel, eigentlich ein mehr glaskolbenförmiger Körper, bewegte sich von der Linken zur Rechten fortschreitend langsamer als eine Sternschnuppe, und verschwand oder erlosch plötzlich.
 
-Herr Karl Hirschbach, Verwalter auf der Staatsdomäne 
-Tokay, dem ich die freundlichen Auskünfte verdanke, wurde von der 
-Erscheinung des 9. Juni auf einer gegen Südosten gerichteten Fahrt 
-in offenem Wagen überrascht, während seiner Beschädigung zur 
-Classificirung der eben gelegenen Wiesen der Gemeinde Rakamnz 
-im Szaboicser Comitate. Er erblickte das Meteor, indem er sich links 
-halb umwenden mußte. 
+Die Höhe wird "bis zur Decke eines gewöhnlichen Zimmers" verglichen. Nimmt man ein ländlich bescheidenes Zimmer 5 Fuß höher als das Auge des Beobachters, und die Entfernung von der Wand 15 Fuß, so erscheint der Deckenrand unter einem Höhenwinkel von 18° 26′ 6′′ (Verhältniß 1:3), und dies gäbe wieder für die Entfernung von 16 Meilen nach Knyahinya etwa 5 3/4 Meilen Höhe.
 
-Es war "eine glänzend goldgelbe Kugel, welche obwohl ohne 
-Zweifel im Fallen gewesen, da ihre Bewegung nach abwärts ging, 
-doch eher verschwunden, als gefallen zu sein schien. Die anwesen- 
-den Landleute meinten, sie müße im Rakamazer Gebiete gelallen sein''. 
+"Das Firmament war wolkenlos, bei brennender Sonnenhitze, Wolken oder Nebel sah ich nicht."
 
-Die Größe wird mit der eines Kindeskopfes verglichen. Wohl 
-ist ein solcher Vergleich mißlich. Indessen gibt ein Durchmesser 
-von 4 --- 5 Zoll bei 38 --- 42-2 Fuß Entfernung die scheinbare Mondes- 
-gröfle von 30 Bogenminuten. 
+"Einen Schall hörten wir nicht."
 
-Die Kugel, eigentlich ein mehr glaskolbenlörmiger Körper, 
-bewegte sich von der Linken zur Rechten fortschreitend laugsamer 
-als eine Sternschnuppe, und verschwand oder erlosch plötzlich. 
+Die horizontale Richtung der glänzenden scheinbaren Bahnlinie wage ich nicht mit anderen Beobachtungen in Zusammenhang zu bringen, aber ich darf sie auch nicht gänzlich mit Stillschweigen übergehen.
 
-Die Höhe wird "bis zur Decke eines gewöhnlichen Zimmers'' 
-verglichen. Nimmt man ein ländlich bescheidenes Zimmer 5 Fuß höher 
-als das Auge des Beobachters, und die Entfernung von der Wand 
-15 Fuß, so erscheint der Deckenrand unter einem Höhenwinkel von 
-18°26'6'' (Verhältniß 1 :3), und dies gäbe wieder für die Entfernung 
-von 16 Meilen nach Knyahinya etwa 58/^ Meilen Höhe. 
+### 9. Szent Miklos, 28 Meilen nahe westlich von Knyahinya (genaue Richtung von Knyahinya aus N 86° W.)
 
-"Das Firmament war wolkenlos, bei brennender Sonnenhitze, 
-Wolken öder Nebel sah ich nicht. 
+Die Mitteilungen aus dieser ansehnlichen Entfernung vom Fallorte verdanke ich der freundlichen Vermittlung meines hochverehrten Freundes, Herrn Sectionsgeologen Heinrich Wolf von der k. k. geologischen Reichsanstalt. Teils waren die Nachrichten von ihm selbst eingesammelt, teils von dem Herrn Obergespan Martin v. Szentivanyi vorbereitet und durch Herrn Bezirks-Ober-Stuhlrichter Joseph C. v. Tholdt an die Direktion der k. k. geologischen Reichsanstalt eingesandt.
 
-Einen Schall hörten wir nicht. ** 
+Herr Gutsbesitzer Joseph v. Czemiczky in Czemics, westlich von Szent-Miklos, sah Nachmittags am 9. Juni hinter seinem Hause, auf seiner Wiese hart am linken Waagufer stehend, genau gegen Osten zu über Andrasfalva eine Feuerkugel senkrecht fallen. Sie verlängerte sich im Falle und zog einen Schweif nach sich. Kein Geräusch war vernehmbar. Die Erscheinung dauerte 3-4 Sekunden.
 
-Die horizontale Richtung der glänzenden scheinbaren Bahnlinie 
-wage ich nicht mit anderen Beobachtungen in Zusammenhang zu 
-bringen, aber ich darf sie auch nicht gänzlich mit Stillschweigen 
-übergehen. 
+Ein Gendarm Mathias Zoubek sah an jenem 9. Juni Nachmittags vor der Kaserne "einen feurigen Gegenstand in Form eines Besens von der Höhe des heiteren Himmels mit einer Schnelligkeit in die Nähe des Kubinyi'schen Hauses herabfallen, welcher während des Falles Funken zurückließ. Diese Erscheinung hat auf mein Auge keine Blendung verursacht. Die Flugzeit des Körpers konnte beiläufig 2-3 Sekunden betragen haben, und es war während der ganzen Zeit kein Geräusch hörbar. Die Flammen waren teilweise rot und blau. --- Nach dem Falle begab ich mich gleich zu dem "wahrscheinlichen Fall"-Orte hin, konnte aber weder dort noch in der Umgebung etwas von dem Gesehenen finden."
 
-9. Sient liklos, 28 leilen nahe westlich Ton injahlnja (genaue 
-Richtung von Knyahinya aus N86**W.) 
+Dies die protokollarische Aussage des Gendarmen M. Zoubek, aufgenommen am 14. August durch den k. k. Wachtmeister Grimm in Also Kubin im Arvaer Comitate, wohin Zoubek seit dem Tage des Falles versetzt worden war, an das k. k. Gendarmerie-Postens-Commando in Sz. Miklos.
 
-Die Mittheilungen aus dieser ansehnlichen Entfernung vom Fall- 
-orte verdanke ich der freundlichen Vermittlung meines hochverehrten 
-Freundes, Herrn Sectionsgeologen Heinrich Wolf von der k. k. geo- 
-logischen Reichsanstalt. Theils waren die Nachrichten von ihm selbst 
-eingesammelt, theils von dem Herrn Obergespan Martin v. Szent- 
-ivanyi vorbereitet und durch Herrn Bezirks-Ober-Stuhlrichter Joseph 
-C. V. Tholdt an die Direction der k. k. geologischen Reichsanstalt 
-eingesandt. 
+Herr Wolf bemerkt: der Kubinyi'sche Garten in Sz. Miklos ist von dem Thore der Gendarmerie-Kaserne etwa 60-80 Klafter östlicher gelegen.
 
-Herr Gutsbesitzer Joseph v. Czemiczky in Czemics, westlich 
-von Szent-Miklos, sah Nachmittags am 9. Juni hinter seinem Hause, 
-auf seiner Wiese hart am linken Waagufer stehend, genau gegen 
-Osten zu über Andrasfalva eine Feuerkugel senkrecht fallen. Sie ver- 
-längerte sich im Falle und zog einen Schweif nach sich. Kein Geräusch 
-war vernehmbar. Die Erscheinung dauerte 3 --- 4 Secunden. 
+Auf dem Felde mit Erdäpfel-Umhäufeln zu Andrasfalva beschäftigt, sah Susanna Kuszka, verehelichte Thurza, Kutschersgattin, evangelisch, 40 Jahre alt "gegen 5 Uhr Abends" eine feurige Kugel in der Gestalt eines Kruges welche unten helllicht oben aber feurig und gleichsam brennend erschien, bald darauf in senkrechter Richtung ganz geräuschlos in den ziemlich breiten und reissenden Wildbach Jalócz" (der östlich von Andrasfalva vorbeifließt)" hinter den Garten des Herrn v. Majláth zu Andrasfalva gefallen zu sein scheint."
 
-Ein Gendarm Mathias Zoubek sah an jenem 9. Juni Nach- 
-mittags vor der Kaserne "einen feurigen Gegenstand in Form eines 
-Besens von der Höhe des heiteren Himmels mit einer Schnelligkeit 
-in die Nähe des Kubinyi*schen Hauses herabfallen, welcher während 
-des Falles Funken zurückließ. Diese Erscheinung hat auf mein Auge 
-keine Blendung verursacht. Die Flugzeit des Körpers konnte bei- 
-läufig 2---3 Secunden betragen haben, und es war während der 
-ganzen Zeit kein Geräusch hörbar. Die Flammen waren theilweise 
-roth und blau. --- Nach dem Falle begab ich mich gleich zu dem 
-"wahrscheinlichen Fall "-Orte hin, konnte aber weder dort noch in 
-der Umgebung etwas von dem Gesehenen finden.* 
+Diese Angabe ist dem Berichte des Herrn J. C. v. Thóldt an die k. k. geologische Reichsanstalt entnommen.
 
-Dies die protokollarische Aussage des Gendarmen M. Zoubek, 
-aufgenommen am 14. August durch den k. k. Wachtmeister Grimm 
-in Also Kubin im Arvaer Comitate, wohin Zoubek seit dem Tage 
-des Falles versetzt worden war, an das k. k. Gendarmerie-Postens- 
-Commando in Sz. Miklos. 
+Das Einfallen der Feuerkugel war übrigens von sehr vielen Personen gesehen worden, und den Beobachtern von der Westseite schien sie geradezu in den Markt Liptó Szent Miklós, den Hauptort des Comitates hineinzufallen, und zwar so sehr ähnlich einer Brandrakete, daß bei den damaligen aus andern zufälligen Ereignissen eben hochgehenden Parteierregungen, von Seite der siegreichen Partei gegen die besiegte ein Vorwurf absichtlicher Beschädigung erhoben, und Haussuchungen gegen die letztere verlangt wurden, was jedoch an der bessern Einsicht und Beurteilung des Herrn Obergespans v. Szentivanyi scheiterte.
 
-Herr Wolf bemerkt; der Kubinyi'sche Garten in Sz. Miklos 
-ist von dem Thore der Gendarmerie-Kaserne etwa 60---80 Klafter 
-östlicher gelegen. 
+# Schluss.
 
-Auf dem Felde mit Erdäpfel-Umhäufeln zu Andrasfalva beschäf- 
-tigt, sah Susanna Kuszka» verehelichte Thurza, Kutschers- 
+Es ließ sich bereits aus den allerersten Berichten über den Meteorsteinfall am 9. Juni 1866 bei Knyahinya erwarten, daß sich eine reiche Ausbeute an Kenntniß an denselben anschließen wird, an einem schönen heiteren Tage, zu sehr gelegener Tageszeit von blendenden optischen und gewaltigen akustischen Erscheinungen begleitet, der Meteorsteinschwarm höchst zahlreich und dessen einzelne Steine von den mannigfaltigsten Größen.
 
+So hat sich denn auch bis zu diesem meinem zweiten Berichte, für welchen ich wohl gerne den Tag unserer ersten Sitzung am 4. Oktober eingehalten hätte, die Masse freundlicher Berichte ungemein vermehrt, und ich mußte mich bescheiden, wenn er auch bereits sehr umfangreich geworden ist, doch nur möglichst, und selbst da vielfach gekürzt, dasjenige zu verzeichnen, was sich zunächst an die Wahrnehmungen der hochgeehrten Gönner und Freunde anschließt. Die Beobachtungen aus der Nähe, und die aus etwas größeren Entfernungen, in südlicher und westlicher Richtung sind zahlreich vertreten. Aus östlicher und nördlicher Richtung gab es keine Ausbeute. Aus der Marmaros erhielt ich keine Angabe einer Adresse eines wirklichen Beobachters, wenn sie auch mehrfach in allgemeinen Ausdrücken genannt wurde. Für Bolechow in Galizien, zwölf Meilen östlich von Knyahinya verdanke ich Herrn k. k. Salzwerks-Verwalter Cajetan Ferdinandi die freundliche Mitteilung, daß das Phänomen weder dort noch in dem Umfange von mehreren Meilen beobachtet worden sei.
 
-gattin, evangelisch, 40 Jahre alt "g^gen 5 Uhr Abends" eine 
-feurige Kugel in der Gestalt eines Kruges welche unten helllicht 
-oben aber feurig und gleichsam brennend erschien, bald darauf in 
-senkrechter Richtung ganz geräuschlos in den ziemlich breiten und 
-reissenden WiJdbach Jalöcz'' (der ostlich von Andrasfalva vorbei- 
-fließt)*' hinter den Garten des Herrn v. Majiäth zu Andrasfalva ge- 
-fallen zu sein scheint.*' 
+Wenn mir auch später noch, sei es aus den einen oder den andern Gegenden, oder aus der Nähe des Fallortes Mitteilungen zukämen, welche einiges Licht auf die Vorgänge zu werfen geeignet wären, so würde ich hochgeehrten Herren für solche Materialien zu einem Dritten Berichte über Knyahinya an einem künftigen Tage vorzulegen recht sehr zu Danke verpflichtet sein. Ich verfehle nicht, meine angelegentlichste Bitte in dieser Richtung hier anzuschließen.
 
-Diese Angabe ist dem Berichte des Herrn J. C. v. Th<(ldt an 
-die k. k. geologische Reichsanstalt entnommen. 
+Namentlich aber war mir der gegenwärtige zweite Bericht bereits zu umfassend geworden, um auch noch der Vergleichung der Meteoriten selbst und Erforschung ihrer inneren Verhältnisse in ihrer auffallenden Übereinstimmung mit den Stücken aus dem Falle vom 28. Februar 1857 bei Parnallee in Ostindien, die erforderliche Zeit und Aufmerksamkeit weihen zu können. Ja selbst aus den aufgezählten Mitteilungen ließen sich noch manche Erörterungen ableiten, welche einer künftigen Zeit angehören.
 
-Das Einfallen der Feuerkugel war übrigens von sehr vielen 
-Personen gesehen worden » und den Beobachtern von der Westseite 
-schien sie geradezu in den Markt Liptd Szent Miklos, den Hauptort 
-des Comitates hineinzufallen » und zwar so sehr ähnlich einer Brand- 
-rakete, daß bei den damaligen aus andern zufalligen Ereignissen 
-eben hochgehenden Partei crregungen, von Seite der siegreichen 
-Partei gegen die besiegte ein Vorwurf absichtlicher Beschädigung 
-erhoben, und Haussuchungen gegen die letztere verlangt wurden, 
-was jedoch an der bessern Einsicht und Beurtheilung des Herrn 
-Obergespans v. Szentivanyi scheiterte. 
-
-S c h I u s s« 
-
-Es ließ sich bereits aus den allerersten Berichten über den 
-Meteorsteinfall am 9. Juni 1866 bei Knyahinya erwarten, daß sich 
-eine reiche Ausbeute an Kenntniß an denselben anschließen wird, an 
-einem schonen heiteren Tage, zu sehr gelegener Tageszeit von blen- 
-denden optischen und gewaltigen akustischen Erscheinungen beglei- 
-tet, der Meteorsteinschwarm höchst zahlreich und dessen einzelne 
-Steine von den mannigfaltigsten Großen. 
-
-So hat sich denn auch bis zu diesem meinem zweiten Berichte, 
-für welchen ich wohl gerne den Tag unserer ersten Sitzung am 
-4. October eingehalten hätte, die Masse freundlicher Berichte unge- 
-mein vermehrt, und ich mußte mich bescheiden, wenn er auch bereits 
-sehr umfangreich geworden ist, doch nur möglichst, und selbst da 
-vielfach gekürzt, dasjenige zu verzeichnen, was sich zunächst'an die 
-Wahrnehmungen der hochgeehrten Gönner und Freunde anschh'eßt. 
-
-Die Beobachtungen aus der Nähe, und die aus etwas größeren Ent- 
-fernungen, in südlicher und westlicher Richtung sind zahlreich ver- 
-treten. Aus ostlicher und nördlicher Richtung gab es keine Ausbeute. 
-Aus der Marmaros erhielt ich keine Angabe einer Adresse eines 
-wirklichen Beobachters, wenn sie auch mehrfach in allgemeinen 
-Ausdrucken genannt wurde. Für Bolechow in Galizien, zwölf Meilen 
-östlich von Knyahinya verdanke ich Herrn k. k. Salzwerks-Verwalter 
-Cajetan Ferdinandi die freundliche Mittheilung, daß das Phänomen 
-weder dort noch in dem Umfange von mehreren Meilen beobachtet 
-worden sei. 
-
-Wenn mir auch später noch, sei es aus den einen oder den 
-andern Gegenden, oder aus der Nähe des Fallortes Mittheilungen 
-zukämen, welche einiges Licht auf die Vorgänge zu werfen geeignet 
-wären, so würde ich hochgeehrten Herren für solche Materialien zu 
-einem Dritten Berichte über Knyahinya an einem künftigen Tage 
-vorzulegen recht sehr zu Danke verpflichtet sein. Ich verfehle 
-nicht, meine angelegentlichste Bitte in dieser Rich- 
-tung hier anzuschließen. 
-
-Namentlich aber war mir der gegenwärtige zweite Bericht 
-bereits zu umfassend geworden, um auch noch der Vergleichung der 
-Meteoriten selbst und Erforschung ihrer inneren Verhältnisse in ihrer 
-aufTallenden Übereinstimmung mit den Stücken aus dem Falle vom 
-28. Februar 1857 bei Parnailee in Ostindien, die erforderliche Zeit 
-und Aufmerksamkeit weihen zu können. Ja selbst aus den aufgezähl- 
-ten Mittheilungen ließen sich noch manche Erörterungen ableiten, 
-welche einer künftigen Zeit angehören. 
-
-Im Ganzen aber läßt sich wohl sagen, in der Geschichte der 
-Meteoritenfälle wird sich der gegenwärtige als ein höchst reichhal- 
-tiger in vieler Beziehung an die Fälle von L*Aigle 26. April 1803, 
-Westen 14. December 1807, Stannern 22. Mai 1808, Juvinas 
-IS. Juni 1821, Allahabad 30. November 1822, Cold Bokkeveld 
-13. October 1838, New Concord 1. Mai 1860, Orgueil 14. Mai 1864 
-und so manche andere glänzend anreihen. 
+Im Ganzen aber läßt sich wohl sagen, in der Geschichte der Meteoritenfälle wird sich der gegenwärtige als ein höchst reichhaltiger in vieler Beziehung an die Fälle von L'Aigle 26. April 1803, Weston 14. Dezember 1807, Stannern 22. Mai 1808, Juvinas 15. Juni 1821, Allahabad 30. November 1822, Cold Bokkeveld 13. Oktober 1838, New Concord 1. Mai 1860, Orgueil 14. Mai 1864 und so manche andere glänzend anreihen.
 
 [Tafel 1.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-table-1.png)
 
 [Tafel 2.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-table-2.png)
 
 [Tafel 3.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-table-3.png)
-
