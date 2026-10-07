@@ -130,6 +130,8 @@ Nach den freundlichst mitgeteilten Skizzen Fig. 3 und Fig. 4, glaube ich dies so
 
 [Fig. 3.]()
 
+[Fig. 4.]()
+
 "Nach Verlauf von 3/4 einer Minute fing es an in der Wolke wie in einem Dampfkessel zu kochen und zu brausen, das sich in ein Rollen gleich einem schweren Donner auflöste, schwach, stärker und wieder schwach abfallend, und gegen eine Minute dauerte. Die Wolke, die sich schon während des Rollens bewegte, kam auf uns mit wachsender Geschwindigkeit, mit stets größerem Sehwinkel, also näher, und verschwand scheinbar in nordsüdlicher Richtung westlich vom Beobachtungsorte über Nagy Berezna ziehend nach Verlauf von 4 bis 5 Minuten immer kleiner werdend aus dem Gesichtskreise."
 
 ### 3. Mitteilungen von Herrn A. Pokorny.
@@ -301,6 +303,8 @@ Schon in den ersten Tagen nach dem Falle hatten die Herren k. k. Waldbereiter Po
 Auf der Ansicht Fig. 2 ist diese Wiese von dem vorliegenden Javornik-Berg bedeckt, und daher nicht sichtbar. Sie schließt sich an den jenseitigen Bergrücken rechts an den Sztyinszka-Felsen in dem weiteren Verlaufe desselben an.
 
 [Fig. 5.]()
+
+[Fig. 6.]()
 
 Es ließ sich wohl vermuten, daß diese Grube durch einen größeren Meteorstein verursacht worden sei. "Von Herrn Waldbereiter ausgesendet, "sagt Herr Pukáts," machte ich mich eines Tages um 3 Uhr Früh auf, um den Stein zu heben. Beim Anlangen auf der Wiese erblickte ich ein etwa 4 Fuß breites und 4 1/2 Fuß tiefes Loch mit aufgeworfenen, umgestülpten Rändern, wie bei einem durch einen elektrischen Funken durchgeschlagenen Kartenblatte. Rasenstücke lagen bis dreißig Klafter vom Loch entfernt umhergeschleudert. Ohne Zweifel ag dort ein Stein, aber wie tief? Mit nur sehr wenig Werkzeugen suchte ich zuerst durch Einschlagen eines Pflockes die Tiefe zu ergründen. Nach dem ersten Einschlagen ließ ich um den Pflock herum die Erde weggraben und denselben sodann tiefer einschlagen, was auch in dem zerbröckelten Karpathen-Sandsteingebilde nicht schwer war. Aber immer noch kein fester Grund. Ein solcher wurde erst erreicht als ich den Pflock in der Richtung γ einschlagen ließ. Erst jetzt stießen wir auf etwas festes, aber ein abgebrochenes Stück (α), welches ich für einen Teil des Ganzen ansprach, und daher weiter graben ließ, bis wir den großen Stein β gefunden hatten. Er lag über 11 Fuß tief in dem Boden, und war in zwei Teile zerspalten. Da jeder Teil mehr als dritthalb Zentner wiegt, so gelang es nur mit großer Anstrengung und mit eingelegten Treppenvorrichtungen, da nur Ein Mann mit voller Gewalt angreifen konnte," und endlich Herr Pukáts selbst Hand anlegte "dieselben herauszuwälzen. Der Grund, auf dem der Stein lag, war steinhart zusammengedrückt."
 
