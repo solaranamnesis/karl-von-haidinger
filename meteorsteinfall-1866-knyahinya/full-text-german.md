@@ -26,17 +26,17 @@
 
 ### 1.7. [Mitteilungen des Herrn A. Pukáts.](#7-mitteilungen-des-herrn-a-pukáts)
 
-### 1.8. [Verteilung der gefallenen Steine auf der Oberfläche.]()
+### 1.8. [Verteilung der gefallenen Steine auf der Oberfläche.](#8-verteilung-der-gefallenen-steine-auf-der-oberfläche)
 
-### 1.9. [Bericht des Herrn Dr. v. Zsiro an Herrn Tavernicus Baron v. Sennyey.]()
+### 1.9. [Bericht des Herrn Dr. v. Zsiro an Herrn Tavernicus Baron v. Sennyey.](#9-bericht-des-herrn-dr-v-zsiro-an-herrn-tavernicus-baron-v-sennyey)
 
-### 1.10. [Letzte Nachrichten über Anzahl und Grösse der Steine.]()
+### 1.10. [Letzte Nachrichten über Anzahl und Grösse der Steine.](#10-letzte-nachrichten-über-anzahl-und-grösse-der-steine)
 
-### 1.11. [Beschaffenheit der Steine.]()
+### 1.11. [Beschaffenheit der Steine.](#11-beschaffenheit-der-steine)
 
-### 1.12. [Der große Stein.]()
+### 1.12. [Der große Stein.](#12-der-große-stein)
 
-### 1.13. [Schlacken, fälschlich für Meteoriten gehalten.]()
+### 1.13. [Schlacken, fälschlich für Meteoriten gehalten.](#13-schlacken-fälschlich-für-meteoriten-gehalten)
 
 ## 2. [Beobachtungen aus grösseren Entfernungen.](#2-beobachtungen-aus-grösseren-entfernungen-1)
 
