@@ -447,484 +447,143 @@ Ausserdem fand sich noch ein Stein vor, im Zollgewichte von 27 Pfd. 13 Lth., 13K
 
 An der Trennung der größeren Stücke ist leicht ersichtlich, daß viele Splitter abgesprengt wurden, welche nun fehlen. Auch fand in der Tat, (s. Seite 495), Herr Negedlo noch vier größere Splitter, jeden über Ein Pfund schwer und einen bis anderthalb Pfund schweren Stein in der Ausgrabung, so daß das Gewicht des Ganzen sehr nahe sechs Zollzentner oder 300 Kilogramm erreicht.
 
-Man kann unmöglich daran zweifeln, daß der Meteorit ganz war, 
-nur Ein Stück, als er an der Oberfläche der Erde anlangte, auch daß 
-er ganz blieb, bis kurz vor der Tiefe von Eil f Fuß zu welcher er 
-niedergedrungen war, wo der zusammengepreßte Grund einem 
-weiteren Vordringen ein Ziel setzte. Kurz vorher mußte das Stück 
-von 27 Pfund an dem einen Ende der länglichen Masse abgebrochen, 
-abgesprengt worden sein. Es ist ohne Zweifel dasselbe, welches sich 
-zuerst Herrn Pukäts verrieth, und das auch in seiner Skizze 
-(Fig. 6) gezeichnet ist. Nach dieser Abtrennung war für einen 
-Augenblick die Spannung in der Längenrichtung des Steines ver- 
-mindert, und die Spaltung des Steines fand Statt. Hier am Ende der 
-Bewegung erst kann sie stattgefunden haben, und zwar auf Grund- 
-lage einer Rotationsbewegung, wie ähnliches Zerspringen mehrfach 
-an Mühlsteinen im Gange vorgekommen ist. Man muß annehmen, 
-daß der Meteorstein im strengsten Sinne des Wortes sich in den 
-Grund eingebohrt hat. Als er mit seiner raschen Rotation an der 
-Oberfläche der Wiese anlangte, zerriß er die Grasnarbe, streute 
-Rasenstücke rund herum aus, warf die Erde bis auf 4«/, Fuß Tiefe 
-heraus, von welcher ein Theil am Rande der 4 Fuß im Durchmesser 
-haltenden Grube als aufgeworfener Rand liegen blieb, wie dies Herr 
-Pukäts so gut dargestellt hat. 
-
-Der Stein von 27 Pfund, und die von Herrn Negedlo auf- 
-gefundenen Splitter und Bruchstücke ergänzen sehr gut das Bild, 
-
-
-8 Rückseite. 
-
-Fig, 9 Ansieht von oben. 
-
-welches man sich von dem Vorgänge zu entwerfen durch die 
-übrigen Erscheinungen angezogen fühlt. 
-
-Die Zusammenstellung der Skizzen des großen Steines im kleinen 
-Maaßstabe Ton --- der Natur wird eine gute Übersicht gewähren, so wie 
-
-sie hier unter einan- 
-der geordnet sind. 
-
-Nebst den bei- 
-den Bildern der 
-Tafeln I, hier durch 
-Fig. 10, und II, hier 
-durch Fig. 8 aus- 
-gedrückt, ist auch 
-die beide verbin- 
-dende Ansicht von 
-oben Fig. 9 gege- 
-ben.--- Höchst cha- 
-racteristisch ist in 
-dieser Übersicht die 
-Lage der gi'ossen 
-Hauptbruchfläche. 
-An der Rückwand 
-Fig. 8 ist die Fläche 
-nahe geradlinig be- 
-grenzt, und nur eine 
-beiderseits nur we- 
-nig breite Kante, 
-wohl in ganz klei- 
-nen Splittern ab- 
-gequetscht. Diese 
-Linie wirkte ohne 
-Zweifel als Axe des 
-Bruches. Gegen die - 
-Vorderseite Fig. 1 1 
-zu ist die Fläche 
-mehr wellenförmig, 
-krummlinig. Auch ist hier das kleinere (4 Pfd. 21 Lth.) Stück frei 
-weggebrochen. Das gi'ößere abgetrennte (27 Pfd. 13 Lth.) Stück ist 
-wie gegen die Bruchaxenlinie zu gewaltsam herausgerissen. 
-
-
-Fig. 10 Vorderseite. 
-
-Der Stein ist im Ganzen überrindet, die Sehmelzg^Gbchen 
-ziemlich flach, übersteigen im Durchmesser einen halben Zoll nicht, 
-doch schließen oft mehrere in wenig abweichender Lage in Gruppen 
-aneinander, den früheren Begrenzungen des Steines entsprechend. 
-Nur ganz wenige dringen hin und wieder etwas tiefer ein. Keine 
-Spur von Rinde yerräth sich auf den Bruchflächen, weder zwischen 
-den beiden nahe gleich großen Hauptbruchstücken, noch auch zwischen 
-dem einen derselben und dem 27-Pfundstücke. Letzteres reicht mit 
-einem flach vorspringenden Theile in einen etwas vertieften des anlie- 
-genden Stückes, so daß es augenscheinlich mit Gewalt aus demselben 
-herausgesprengt erscheint. Die Hauptbruchfläche zwischen den beiden 
-nahe gleich großen Stücken, hat eine beinahe ebene Lage, ent- 
-sprechend dem nahe gleichen Widerstände derselben gegen die zer- 
-reissende KrafL 
-
-Was die Größe des ganzen Steines selbst betrifft, so wie er herab- 
-gefallen, so ist er der größte, der für unsere Meteoriten-Sammlungen 
-in Besitz genommen worden ist. Und selbst die beiden Bruchstücke 
-übertreffen noch weit die bekannten Exemplare anderer Steinfalle. 
-Der Stein von Ensisheim (7. Nov. 1492) hatte allerdings ein Gewicht 
-von 270 Pfund (127-270 K.), aber der größte noch übrige Rest, in 
-der Kirche daselbst aufbewahrt, soll nur mehr 40 --- SO Kilogr. wiegen 
-(B u c h n e r, Meteoriten in Sammlungen S. 1, 70 Pfund nach Benzen- 
-berg, 100 Pfund nach Chi adni (Über Feuer-Meteore S. 206). Alle 
-anderen sind kleiner, Juvinas (15. Juni 1821), HO Kilogr., davon 42 
-Kilogr. im Mus^e d'histoire naturelle in Paris, New Concord (1. Mai 
-1860), das größte Stück 103 Pfund in Marietta College, Ohio, Parnallee 
-(28. Febr. 1857) das größte Stück 130 Pfund im Britischen Museum. 
-Wohl hat uns noch der Bericht über eine größere Masse erreicht, 
-welche nach Plutarch bei Aegospotamos im Thracischen Chersones 
-(ungefähr 465 vor unserer Zeitrechnung) herabfiel, nach Pliniusvon 
-der Größe einer Wagenlast --- magitudine vehis (Chladni S. 176), aber 
-es ist kein Stück davon in Sammlungen erhalten. 
-
-Viele weit größere Eisenmassen sind freilich vorhanden, und 
-wohl bekannt, und von gleichem meteoritischem Ursprünge. 
-
-Diese Bemerkungen enthalten wohl das Wichtigste, was mir über 
-den Knyahinya-Meteoritenfall, bezüglich der nächsten Umgegend auf- 
-zusammeln beschieden war. 
-
-
-Der Meteorsteinfall am 9. Juni 1860 bei Knjahinjra. 505 
-
-13. Seklaekeo, flllschlieh für Meteoriten gehalten. 
-
-Ein etwas fremdartiger Körper trat während der Zeit ebenfalls 
-mit einigen Ansprüchen auf, welche sich aber später als unberechtigt 
-erwiesen. Die Aufmerksamkeit der Bewohner war vielleicht noch nie- 
-mals so sehr auf ihren eigenen Grund und Boden gespannt gewesen, 
-als jetzt nach dem Meteoritcnfalle. Man fand jetzt Schlackenstücke, und 
-glaubte auch diese vom Himmel gefallen, aber an St'ücken, welche 
-mir sowohl HeiT Po körn y als auch Herr Negedio einsandten, 
-bemerkte man, daß sie keinen Zusammenhang mit der Bildung der 
-Schmelzrinde der Meteoriten haben konnten, sondern daß es einfache 
-Schlacken waren, einige im Wasser geschiebeartig abgerollt, andere 
-im Innern Holzkohlenstücke enthaltend, die untrüglichsten Beweise 
-des früheren Waltens menschlicher Gewerbsthätigkeit. 
-
-n. Beobachtungen aus grösseren Entfernungen. 
-
-Hier liegt sehr mannigfaltiges Material vor, aus welchem ich das 
-freundlichst Mitgetheilte doch in möglichster Kürze vorzulegen beab- 
-sichtige. 
-
-1. Vngfkvär, sechs Hellen sfldsAdwestlick von Knyakinya. 
-
-Hier muß ich zuvörderst noch Herrn Ingenieur Franz K ist 1er 
-meinen besten Dank darbringen für seine wohlwollende Übersendung 
-eines Exemplares von M^/^ Loth für die k. k. geologische Reichs- 
-anstalt, nebst ausführlichem Berichte über die Vorgänge. Letzterer 
-enthält das Wichtigste, wofür ich indessen im Vorhergehenden 
-unmittelbar aufgesammelte Angaben werkstellig zu machen mich 
-bestrebte. 
-
-Das Meteor war in Unghvär von Herrn Franz Kistler selbst 
-gesehen worden, als eine rothglühend feurige Kugel, von der Größe 
-wie Zweidrittel der Mondscheibe, nach sich einen Rauchstreifen hin- 
-terlassend, der sich binnen fünf Minuten allmälig verlor. 
-
-In einem Diagramm, Fig. 1 1, nach den Weltgegenden orientirt 
-und hier auf die genaue geographische Lage von Knyahinya bezogen, 
-gab Herr Kistler freundlichst auch graphisch die Richtung des Falles, 
-aus etwa 50 Grad Höhe bis zu einiger Entfernung von der Erde, die 
-in der Zeichnung ungefShr auf die Höhe von 10 Grad fallt. 
-
-Bei der Entfer- 
-nung von Unghvir 
-vom Fallorte Knya- 
-hinya von 6 Meilen, 
-würde dies bei einer 
-Zenithdistanz von 
-6** in einer auf die 
-Gesichtslinie senk- 
-rechten Ebene ei- 
-nem Falle aus einer 
-Höhe von 7- 12 Mei- 
-len Anfangspunkt 
-bis 1-58 Meilen von 
-der Erde Endpunkt 
-für den sichtbaren 
-Lauf des Meteors 
-entsprechen, und 
-es ist dadurch für 
-Eine Richtung ein 
-Anhaltspunkt geboten. 
-
-Für die vollständige Bestimmung werden spater die Berichte 
-aus Gälsz^cs und Eperies leitende Betrachtungen gewähren. Ähnlich, 
-wie in Unghvir war die in Szürthe 2 Meilen SSW. von Unghvar, 
-ebenfalls nach Mittheilung von Herrn Kistler. 
-
-Von den Schall-Erscheinungen in Unghvär ist in den letzten 
-freundlichen Berichten nicht mehr die Rede. Es wird nur auf die 
-frühere Angabe in dem Sitzungsberichte vom 12. Juli hingewiesen» 
-daß man »bei Unghvar herum so wie in den benachbarten Comitaten 
-beinahe zur selben Zeit ein ähnliches Getöse'' hörte, also in einer 
-bereits sehr verallgemeinerten Weise, wo es immer wünschenswerth 
-bleibt, eine wirkliche Beobachtung zu vernehmen. 
-
-
-IforiLVJtt' 
-
-
-Nbrd^ 
-
-
-Horixjan^ 
-
-
-2. Täisehnigen In Beug auf den Fall v«n Venerkngeln. 
-
-An mehreren Orten, wo man das Meteor aus der Entfernung in 
-der Gestalt einer Feuerkugel fallen sah, tauschte man sich hier, wie 
-bei so vielen anderen Gelegenheiten, daß man glaubte der Fall sei 
-ganz in der Nähe geschehen, hinter einem Gebäude, in einem Walde, 
-
-jenseits eines nahen Hügels und dergleichen, ja man suchte selbst, 
-eine Zeit lang, wenn auch natürlich ohne Erfolg. 
-
-Ich glaube hier schon bei der ersten Beobachtung aus größerer 
-Ferne, ein Wort über diese Täuschung sagen zu müssen, welche so 
-vielfältig sich dargeboten hat. Man nahm an, es seien sehr viele Kugeln 
-gefallen, die man aber nicht finden kann, und was sich schon in der 
-ersten Mittheilung vom 12. Juli angedeutet fand, daß diese Kugeln 
-von Knyahinya aus ausgestreut worden sein. Ja ein Bericht der mir 
-vorlag behauptet sogar "wenn es wahr ist, daß in mehreren Comi- 
-taten %u derselben Zeit Meteoriten fielen, wie im Zempliner Comitat 
-zu Hegyi, Eperies, Rakamaz so muß dies vor der großen Explosion 
-statt gefunden haben. ** 
-
-Nun sind aber in jenen Comitaten und Orten keine Meteorsteine 
-gefallen, sondern man hat nur ein Meteor gesehen, und dieses Meteor 
-war kein anderes als dasjenige, welches mit dem Steinfalle von 0 
-Sztusicza, Knyahinya und Sztricsava schloß. Man hat früher die 
-Generalisirungen walten lassen, bevor man den eigentlichen Beobach- 
-tungen hinlänglich Rechnung getragen, und doch sind es am Ende 
-immer nur diese letztern, welche allein als Grundlage zu sicheren 
-Schlüssen dienen kennen. 
-
-3. fiälsiics, Bein leilei sfldwestllch vm KoyakiBja. 
-
-Bereits unter dem 19. Juni hatte Herr Baron Ludwig v. F i s c h e r, 
-k. k. Rittmeister in der Armee und Gutsbesitzer, an Herrn k. k. Mini- 
-sterialrath Freiherm v. Hingen au, damals noch in Pribram, Nach- 
-richt über die Erscheinung gegeben, eine Mittheilung welche Herr 
-k. k. Bergrath Dr. Franz Ritter v. Hauer in der Sitzung der k. k. 
-geologischen Reichsanstalt am 24. Juni vorlegte. In Bezug auf einige 
-nähere wünschenswerthe Auskünfte erhielt ich später noch freundlichst 
-Nachricht sowohl von Herrn Baron v. Fischer als auch von Herrn 
-Armin Thaiss, Apother in G&lsz^cs. 
-
-Herr A. Thaiss war mit sechs Männern in einem Weinberge 
-nächst dem Orte beschäftigt, als sie plötzlich gegen fünf Uhr, hoch 
-am Firmament eine Feuerkugel mit einem kleinen Schweif bemerkten, 
-in ostnordöstlicher Richtung. Die Kugel kam von Ost und fiel etwas 
-gegen Nord geneigt mit außerordentlicher Schnelligkeit. Als sich die- 
-selbe der Erde näherte, wurde sie dunkler, und dem Auge nicht mehr 
-
-SiUb. d. inathem.-natarw. Cl. UV. Bd. II. Abtii. 33 
-
-den war, aber beide fehlerhaft, denn die Richtung war genau östlich 
-durch den Fall selbst beurkundet. Man würde nach den Angaben sehr 
-weit irre gegangen sein, hätte man sie als Wegweiser benützen wol- 
-len. Aber dieser Mangel an Orientirung in den Weltgegenden ist ja 
-bekannter Maaßen in tief continentalen Ländern eine sehr verbreitete 
-Thatsache. 
-
-In Bezug auf die Verschiedenheit des Eindruckes mdchte ich 
-hier bemerken, daß dies wohl gar sehr von den Individualitäten der 
-Beobachter abhängig ist, und daher wohl nicht jeder das ganz Gleiche 
-gesehen haben muß --- immer bleibt es Aufgabe den Eindruck unver- 
-kümmert zu verzeichnen. Die Form des brennenden Besens mit einem 
-Stiele voran hat aber unter andern ein auffallend ähnliches Gegenstück 
-in der Beobachtung des Lieutenants Aylesbury in Bezug auf den 
-Fall von Quenggouk in Pegu, dessen Abbildung ich in meinem Bericht, 
-am 5. December 1861 der hochgeehrten Classe vorzulegen die Ehre 
-hatte <). Nur zog dort das Meteor nahe horizontal, hier fast senk- 
-recht nieder. 
-
-Die Leute zu Terjekfalva, südöstlich unweit Salgo sagten aus, 
-daß "der Schlag, ** als das Meteor scheinbar auf die Berge traf, "so 
-heftig war, daß ihr Dorf erbebte."^ 
-
-Aus dieser Veranlassung berichtet Herr Hazslinszky auch, 
-daß Herr Domherr Stephan Piller, Pfarrer in Töke Terebesim Zem- 
-pb'ner Comitate, 1 y« Meile südöstlich von Gälsz^cs, und etwas Ober 
-9 Meilen südöstlich von Knyahinya, die Bemerkung machte, "daß 
-auch bei dem stärksten Donnerwetter seine Fenster nicht erklirren, 
-daß aber bei dieser heftigen Detonation nicht nur die Fenster klirrten, 
-sondern daß auch das ganze Haus erbebte.*' 
-
-InEperies selbst war es namentlich, ebenfalls.nach Herrn Haz s- 
-linszky's Bericht, Herr Kaufmann Daniel Ozwald, welcher den 
-Anfang des Phänomens beobachtete. Er führte Herrn Hazslinszky 
-an den Ort der Beobachtung in dem Hofe seines Hauses und erzählte, 
-wie er etwa um K Uhr, nachdem er seinen Tauben Futter gestreut, eben 
-in das Zimmer zurückkehren wollte, ein eigenthümliches Zischen sein 
-Auge gegen den Himmel zog. Er sah von einer Stelle, welche Herr 
-Hazslinszky auf etwa 40 Grad über dem Horizont schätzte "einen 
-schmalen weißen Streif, welcher nach unten in einen Knoten endete. 
-
-
-i) Sittungsb. d. mathem.-natorw. Cl. d. kais. Akad. d. Wissensch. Bd. XLIX, S. 637. 
-
-sich "mit großer Schnelligkeit gegen einen" vorliegenden "Dach- 
-winkel zu bewegen,'' welchen Herr Hazsiinszky auf etwa 30 Grad 
-über dem Horizont schätzte. "Der anfangs weiße Knoten wurde immer 
-röther und übertraf als er das Dach erreichte an Glanz die Sonne. 
-Der Knoten hatte dort die Form eines mit der Spitze gegen den 
-zurückgelassenen Schweif gekehrten Kegels." Herr Ozwald lief 
-eiligst auf die Gasse, in der Meinung das Meteors sei hinter den 
-Häusern niedergefallen, "und zeigte den noch immer sichtbaren 
-Schweif den Anwesenden, zuerst Herrn Alexander Bornemisza.^ 
-(Die Länge des Schweifes betrug etwa 20 Grad.) Nach ungefähr 
-zwei Minuten zog sich der weiße Nebelstreif in seiner untern Hälfte 
-in ein Wölkchen zusammen, welches sich später mit einem zweiten 
-weißen Wölkchen vermengte und verschwand.** 
-
-Der Nebelstreifen bildete nach der Schätzung des Herrn Hazs- 
-iinszky nach der ihm mitgetheilten Angabe, welche er ebenfalls in 
-eine orientirte Skizze eintrug, einen Winkel von etwa 15 mit einer 
-Verticallinie, dem größten westöstlichen Kreise angehörig, von Norden 
-her genähert. 
-
-S. Die wahre Blftfallsbalm des letetrs. 
-
-Ich werde unmittelbar an die vorhergehende Angabe anschließend, 
-versuchen, durch Combination der Beobachtungen in Eperies und 
-Gälsz^cs mit jener in Unghv&r die Richtung des Falles näher zu 
-erörtern. Es gelingt wohl am kürzesten und anschaulichsten durch 
-
-eine geographische Projection Fig. 12, zwischen dem Fallorte Knya- 
-hinya und den Beobachtungsorten Unghvar, Galsz^cs und Eperies. 
-Zum Ausgangspunkte glaube ich die Beobachtung zu Unghvar nehmen 
-zu können, für welche die Grundlinie UK gilt, und die Projection der 
-verbindenden Linien mit dem höchsten Punkte des Meteors bei 
-60** Höhe, nämlich VV. 
-
-Für Galsz^cs wurde nur ein Fall bemerklich gemacht, bei dem 
-die Bahn nahe senkrecht, aber doch etwa3 geneigt Ton Ost gegen 
-Nord sich darstellte. Für Eperies traf die Fallbahn ebenfalls nahe 
-senkrecht in ähnlicher aber entgegengesetzter Weise, von Nord 
-gegen Süd ein. Beides wird in der Projection erreicht, Menn man 
-den Winkel EKG (Eperies -Knyahinya-Galszecs) = 27° halbirt, 
-und die Mittellinie FiT bis zum Durchschnitte mit PF verlängert. MK 
-für Galszecs, LK für Eperies sind dann die Projectionen der schein- 
-baren Bahnen, freilich nur mit einer ganz kleinen Abweichung von 
-etwa t ° von der ganz vollkommen senkrechten Richtung. \^on größe- 
-ren Winkeln aber kann doch keine Rede sein, weil sonst die eine der 
-Beobachtungen ganz fehlerhaft gesprochen werden müßte. 
-
-Nimmt man, wie in Fig. 1 1, die Höhe des Beginnes des Leuehtens 
-mit 7*12 Meilen an, so erhöht sich dieselbe für den Punkt Fauf 7«/4 
-Meilen. Dann aber ergibt sich ein Höhenwinkel für die Beobachtung, 
-von Galszecs aus auf 37°, von Eperies aus auf 31°. 
-
-Ein Höheuwinkel von 40° in Eperies würde eine absolute Höhe 
-des Punktes Y von 11 V^ Meilen, und für Galszecs den W^inkel von 
-47 ya*» für Unghvör von 60° bedingen. 
-
-Ein Höhenwinkel von 70° in Eperies würde eine absolute Höhe 
-des Punktes Fvon 37 Meilen, und für Galszecs den Winkel von 74°, 
-für Unghvar von 80° bedingen. 
-
-Eine solche Höhe würde um nahe 10 deutsche Meilen die größte 
-der Höhen für den Beginn des Leuchtendwerdens der Sternschnuppen 
-übersteigen, 131 englische Meilen (=27 D.M.) wie selbe von Herrn 
-Alexander Herschel am 10. August 1863 beobachtet und berech- 
-net worden sind. Und selbst diese Höhe hatte Alexander Herschel 
-als wahrscheinlich überschätzt bezeichnet <). 
-
-
-0 Quetelet. Sur les ^tolles Blaotes du iO AoAt 1863. Eitrait d'iine lettre de Sir 
-Jobo Herschel nssocie de Tacademie J^ M. Ad. Quetelet. Bailetina de PA. R. de 
-ßelgique, 2™' Ser. T. Xvi. Nr. 9. 
-
-Bei dem Umstände, daß kaum irgend etwas in der Praxis so 
-leicht überschätzt wird, wie ein Höhenwinkel, und doch auch nicht 
-einmal annähernde astronomischen ähnliche Schätzungen vorliegen, 
-glaube ich mich wohl auf diese kleinste der gegebenen beschränken 
-zu dürfen. 
-
-So wäre die Annahme, daß das Meteor in einer Hohe von 7*/^ 
-Meilen in der Atmosphäre zu leuchten begann, und daß seine Bahn 
-nahe senkrecht, mit nur 6^ Zenithdistanz, in einer Richtung von Nord 
-76** 30' Ost nach Süd 76** 30' West VVF (Fig. 8) sich bewegte. 
-
-Die Lage der aufgefundenen Steine stimmt ganz gut mit dieser 
-Annahme; eine Linie durch den Fallort B des großen Blockes ziem- 
-lich mitten durch die von Fundstücken bedeckte Oberfläche in Fig. 1 
-gezogen, besitzt die Lage von N 67** 0 gegen S 67° W. 
-
-Die Vergleichung mit der Richtung, welche aus den Erhebungen 
-des Herrn Pukats, bei seiner Ausgrabung folgt, war, wie oben 
-erwähnt, von N. 31*" 0. gegen S. 31** W. bei einer Zenithdistanz 
-von etwa 27*". 
-
-Daß sich beim Einbohren die Zenithdistanz zu vergrößern 
-geneigt zeigt, wird kaum Bedenken erregen können, wo der senk- 
-rechte Widerstand wohl eindringlicher angenommen werden darf, 
-als ein seitlicher. Aber auch eine Herabminderung des Abweichungs- 
-winkels von 70° 30' auf 31° dürfte ganz annehmbar erscheinen, 
-wenn man annimmt, daß die Rotation des Steines beim Fortschreiten 
-von links gegen rechts herum stattfand, von dem umgebenden Grunde 
-dagegen der Widerstand entsprechend von rechts gegen links wirkte. 
-Ein Theil des Steines» wie die Zeichnung Fig. 6, Seite 44 zeigt, 
-blieb zuerst in der Tiefe gänzlich feststecken, und der rückwärts fol- 
-gende brach von demselben los, worauf freilich eine fernere Rotation 
-nicht mehr stattfand. 
-
-6. Asftronomlsehe Orientirong. 
-
-Es ist nun auch leicht, die astronomische Orientirung der Bahn 
-des Meteoritenschwarmes aufzusuchen, freilich mit dem Charakter 
-einer nur beiläufigen Näherung, welche ja hier von dem Gegenstande 
-selbst unzertrennlich ist. Am 9. Juni stand nämlich die Capeila im 
-Cepheus nur wenig südlich vom Zenith von Knyahinya. Nach- 
-mittag 6 Uhr standen die südlicheren Sterne des großen Bären an 
-dieser Stelle. Auf diese Gegend ungefähr weist also die entsprechend 
-
-den vorliegenden Angaben angenommene Richtung des Falles, als 
-Grundlage zu weiterer Betrachtung. 
-
-7. Eperles. Vortsetiaag. Darstellongen Ton lern iolbay. 
-
-1. Eperies. Herr Johann Kolbay, Studirender in Eperies» 
-hatte den Muth, den tiefen Eindruck, welchen das unverhofft erblickte 
-Meteor auf ihn hervorbrachte auch durch Darstellungen in Farben 
-festzuhalten. Für die Einsendung derselben bin ich Herrn Hazs- 
-linszky zu dem größten Danke verpflichtet, sowie Herrn Kolbay 
-selbst für spätere Bemerkungen zu denselben, und auch für weitere 
-Mittheilungen. 
-
-Herr Kolbay. hatte die Erscheinung in der Nähe von Eperies 
-gesehen. Nur schwacher Anflug von Federwolken lag nahe dem 
-Horizont. 
-
-Die landschaftliche Darstellung Fig. 1, Taf. HI, gibt den allgemei- 
-nen Eindruck im Falle. Die beiden Bilder, Fig. 2, Taf. HI und Fig. 3, 
-Taf. HI stellen etwas größer gehalten den so sehr lebhaften Eindruck 
-der reichen Farbentöne vor, in welchem das Meteor erschien. Herr 
-Kolbay begleitet sie mit einigen Worten. Er sah bei einem unwill- 
-kürlichen Blicke nach oben am Himmelsgewölbe die Erscheinung, 
-und zwar aus einer Höhe von 68 bis 70 Grad, "welche mit beschleu- 
-nigtem Fluge dahineilte. Die Farbe war die der Weißglühhitze de^ 
-Eisens und der Schweif war zu beiden Seiten mit einem Ultramarin- 
-Saume geschmückt, nach unten ging die Farbe in Orange über'', und 
-man glaubte lebhaft einen festen Körper innerhalb der Flammenhülle 
-zu sehen. "Oftmals flackerte der Schweif auf, besonders zuletzt als 
-die Erscheinung hinter der nächsten Bergkette hinunter tauchte. 
-Übrigens muß ich gestehen, daß ich das letzte großartigste "Wedeln 
-mit dem Schweife** nicht einmal gut beachten konnte, ich war zu 
-sehr von der Erscheinung selbst ergriflcn. Über dem Schweife des 
-Meteors sammelte sich Rauch zu einem kleinen Wölkchen.** 
-
-Das Meteor in dem landschaftlichen Bilde Taf. HI, Fig. 1 gibt den 
-Eindruck eines vollständig senkrechten, oder nur wenig von dem- 
-selben abweichenden Falles» das Bild Fig. 2 gibt das Meteor bei 
-größerer Höhe, Fig. 3 bereits in einer tieferen, der Erde mehr 
-genäherten Lage. Während es in der ersten scheinbar mehr gestreckt 
-ist, hatte es noch von seiner kosmischen Geschwindigkeit nicht so sehr 
-viel eingebüßt. Gegen das Ende der Bahn zu, wo bereits unser 
-
-irdischer atmosphäriscber Widerstand überwiegt, könnte man sich 
-wohl denken, dafi dieser gewissermaassen stoßweise auf den Inhalt 
-wirkt, und dadurch eine Ungleichförmigkeit in der Lichterscheinung 
-hervorbringt, unterstützt vielleicht durch die Beschaffenheit des In- 
-haltes, welcher hier aus so vielen, und ungleich großen Theilen bestand. 
-Ich muß nicht versäumen beizufügen, daß ich die landschaftliche 
-Darstellung nur mit den Farben des Meteors erhielt, die beiden 
-Meteorbild^r aber auf schwarzem Grunde. Auf diesem tritt freilich 
-die Intensität des Glanzes mehr der Natur entsprechend hervor, aber 
-ich glaubte doch der Zeit des Tages entsprechend, für die Veröffent- 
-lichung die blaue Himmelsfarbe des Grundes vorziehen zu sollen. 
-
-2. Kapi. Noch eine Darstellung, aus einer tiefem Stelle der 
-Fallbahn verdanke ich ebenfalls dem Werke des Herrn Kolbay aus 
-einer Beobachtung des Meteors zu Kapi, Fig. 4, Taf. III, anderthalb 
-Meilen nordöstlich von Eperies, nach der aufmerksamen Beobachtung 
-des namentlich auch von Herrn Hazsiinszky hochverehrten Bie- 
-dermannes, Herrn Karl Rainer, Pächters des Gutsbesitzes zu 
-Kapi. Nur ganz niedriges Hügelland liegt gegen Osten vor. 
+Man kann unmöglich daran zweifeln, daß der Meteorit ganz war, nur Ein Stück, als er an der Oberfläche der Erde anlangte, auch daß er ganz blieb, bis kurz vor der Tiefe von Eilf Fuß zu welcher er niedergedrungen war, wo der zusammengepreßte Grund einem weiteren Vordringen ein Ziel setzte. Kurz vorher mußte das Stück von 27 Pfund an dem einen Ende der länglichen Masse abgebrochen, abgesprengt worden sein. Es ist ohne Zweifel dasselbe, welches sich zuerst Herrn Pukáts verrieth, und das auch in seiner Skizze (Fig. 6) gezeichnet ist. Nach dieser Abtrennung war für einen Augenblick die Spannung in der Längenrichtung des Steines vermindert, und die Spaltung des Steines fand Statt. Hier am Ende der Bewegung erst kann sie stattgefunden haben, und zwar auf Grundlage einer Rotationsbewegung, wie ähnliches Zerspringen mehrfach an Mühlsteinen im Gange vorgekommen ist. Man muß annehmen, daß der Meteorstein im strengsten Sinne des Wortes sich in den Grund eingebohrt hat. Als er mit seiner raschen Rotation an der Oberfläche der Wiese anlangte, zerriß er die Grasnarbe, streute Rasenstücke rund herum aus, warf die Erde bis auf 4 1/2 Fuß Tiefe heraus, von welcher ein Teil am Rande der 4 Fuß im Durchmesser haltenden Grube als aufgeworfener Rand liegen blieb, wie dies Herr Pukáts so gut dargestellt hat.
+
+Der Stein von 27 Pfund, und die von Herrn Negedlo aufgefundenen Splitter und Bruchstücke ergänzen sehr gut das Bild, welches man sich von dem Vorgange zu entwerfen durch die übrigen Erscheinungen angezogen fühlt.
+
+[Fig. 8. --- Rückseite.]()
+
+[Fig. 9. --- Ansicht von oben.]()
+
+[Fig. 10. --- Vorderseite.]()
+
+Die Zusammenstellung der Skizzen des großen Steines im kleinen Maaßstabe von 1/12 der Natur wird eine gute Übersicht gewähren, so wie sie hier unter einander geordnet sind.
+
+Nebst den beiden Bildern der Tafeln 1., hier durch Fig. 10, und 2., hier durch Fig. 8 ausgedrückt, ist auch die beide verbindende Ansicht von oben Fig. 9 gegeben.--- Höchst characteristisch ist in dieser Übersicht die Lage der grossen Hauptbruchfläche. An der Rückwand Fig. 8 ist die Fläche nahe geradlinig begrenzt, und nur eine beiderseits nur wenig breite Kante, wohl in ganz kleinen Splittern abgequetscht. Diese Linie wirkte ohne Zweifel als Axe des Bruches. Gegen die Vorderseite Fig. 11 zu ist die Fläche mehr wellenförmig, krummlinig. Auch ist hier das kleinere (4 Pfd. 21 Lth.) Stück frei weggebrochen. Das größere abgetrennte (27 Pfd. 13 Lth.) Stück ist wie gegen die Bruchaxenlinie zu gewaltsam herausgerissen.
+
+Der Stein ist im Ganzen überrindet, die Schmelzgrübchen ziemlich flach, übersteigen im Durchmesser einen halben Zoll nicht, doch schließen oft mehrere in wenig abweichender Lage in Gruppen aneinander, den früheren Begrenzungen des Steines entsprechend. Nur ganz wenige dringen hin und wieder etwas tiefer ein. Keine Spur von Rinde verräth sich auf den Bruchflächen, weder zwischen den beiden nahe gleich großen Hauptbruchstücken, noch auch zwischen dem einen derselben und dem 27-Pfundstücke. Letzteres reicht mit einem flach vorspringenden Teile in einen etwas vertieften des anliegenden Stückes, so daß es augenscheinlich mit Gewalt aus demselben herausgesprengt erscheint. Die Hauptbruchfläche zwischen den beiden nahe gleich großen Stücken, hat eine beinahe ebene Lage, entsprechend dem nahe gleichen Widerstände derselben gegen die zerreissende Kraft.
+
+Was die Größe des ganzen Steines selbst betrifft, so wie er herabgefallen, so ist er der größte, der für unsere Meteoriten-Sammlungen in Besitz genommen worden ist. Und selbst die beiden Bruchstücke übertreffen noch weit die bekannten Exemplare anderer Steinfälle. Der Stein von Ensisheim (7. Nov. 1492) hatte allerdings ein Gewicht von 270 Pfund (127.270 K.), aber der größte noch übrige Rest, in der Kirche daselbst aufbewahrt, soll nur mehr 40-50 Kilogr. wiegen (Buchner, Meteoriten in Sammlungen S. 1, 70 Pfund nach Benzenberg, 100 Pfund nach Chladni (Über Feuer-Meteore S. 206). Alle anderen sind kleiner, Juvinas (15. Juni 1821), 110 Kilogr., davon 42 Kilogr. im Musée d'histoire naturelle in Paris, New Concord (1. Mai 1860), das größte Stück 103 Pfund in Marietta College, Ohio, Parnallee (28. Febr. 1857) das größte Stück 130 Pfund im Britischen Museum. Wohl hat uns noch der Bericht über eine größere Masse erreicht, welche nach Plutarch bei Aegospotamos im Thracischen Chersones (ungefähr 465 vor unserer Zeitrechnung) herabfiel, nach Plinius von der Größe einer Wagenlast --- _magitudine vehis_ (Chladni S. 176), aber es ist kein Stück davon in Sammlungen erhalten.
+
+Viele weit größere Eisenmassen sind freilich vorhanden, und wohl bekannt, und von gleichem meteoritischem Ursprunge.
+
+Diese Bemerkungen enthalten wohl das Wichtigste, was mir über den Knyahinya-Meteoritenfall, bezüglich der nächsten Umgegend aufzusammeln beschieden war.
+
+### 13. Schlacken, fälschlich für Meteoriten gehalten.
+
+Ein etwas fremdartiger Körper trat während der Zeit ebenfalls mit einigen Ansprüchen auf, welche sich aber später als unberechtigt erwiesen. Die Aufmerksamkeit der Bewohner war vielleicht noch niemals so sehr auf ihren eigenen Grund und Boden gespannt gewesen, als jetzt nach dem Meteoritenfalle. Man fand jetzt Schlackenstücke, und glaubte auch diese vom Himmel gefallen, aber an Stücken, welche mir sowohl Herr Pokorny als auch Herr Negedlo einsandten, bemerkte man, daß sie keinen Zusammenhang mit der Bildung der Schmelzrinde der Meteoriten haben konnten, sondern daß es einfache Schlacken waren, einige im Wasser geschiebeartig abgerollt, andere im Innern Holzkohlenstücke enthaltend, die untrüglichsten Beweise des früheren Waltens menschlicher Gewerbstätigkeit.
+
+## 2. Beobachtungen aus grösseren Entfernungen.
+
+Hier liegt sehr mannigfaltiges Material vor, aus welchem ich das freundlichst Mitgeteilte doch in möglichster Kürze vorzulegen beabsichtige.
+
+### 1. Unghvár, sechs Meilen südsüdwestlich von Knyahinya.
+
+Hier muß ich zuvörderst noch Herrn Ingenieur Franz Kistler meinen besten Dank darbringen für seine wohlwollende Übersendung eines Exemplares von 14 1/2 Loth für die k. k. geologische Reichsanstalt, nebst ausführlichem Berichte über die Vorgänge. Letzterer enthält das Wichtigste, wofür ich indessen im Vorhergehenden unmittelbar aufgesammelte Angaben werkstellig zu machen mich bestrebte.
+
+Das Meteor war in Unghvár von Herrn Franz Kistler selbst gesehen worden, als eine rotglühend feurige Kugel, von der Größe wie Zweidrittel der Mondscheibe, nach sich einen Rauchstreifen hinterlassend, der sich binnen fünf Minuten allmälig verlor.
+
+In einem Diagramm, Fig. 11, nach den Weltgegenden orientirt und hier auf die genaue geographische Lage von Knyahinya bezogen, gab Herr Kistler freundlichst auch graphisch die Richtung des Falles, aus etwa 50 Grad Höhe bis zu einiger Entfernung von der Erde, die in der Zeichnung ungefähr auf die Höhe von 10 Grad fallt.
+
+[Fig. 11.]()
+
+Bei der Entfernung von Unghvár vom Fallorte Knyahinya von 6 Meilen, würde dies bei einer Zenithdistanz von 6° in einer auf die Gesichtslinie senkrechten Ebene einem Falle aus einer Höhe von 7.12 Meilen Anfangspunkt bis 1.58 Meilen von der Erde Endpunkt für den sichtbaren Lauf des Meteors entsprechen, und es ist dadurch für Eine Richtung ein Anhaltspunkt geboten.
+
+Für die vollständige Bestimmung werden später die Berichte aus Gálszécs und Eperies leitende Betrachtungen gewähren. Ähnlich wie in Unghvár war die in Szürthe 2 Meilen SSW. von Unghvár, ebenfalls nach Mitteilung von Herrn Kistler.
+
+Von den Schall-Erscheinungen in Unghvár ist in den letzten freundlichen Berichten nicht mehr die Rede. Es wird nur auf die frühere Angabe in dem Sitzungsberichte vom 12. Juli hingewiesen, daß man "bei Unghvár herum so wie in den benachbarten Comitaten beinahe zur selben Zeit ein ähnliches Getöse" hörte, also in einer bereits sehr verallgemeinerten Weise, wo es immer wünschenswert bleibt, eine wirkliche Beobachtung zu vernehmen.
+
+### 2. Täuschungen in Bezug auf den Fall von Feuerkugeln.
+
+An mehreren Orten, wo man das Meteor aus der Entfernung in der Gestalt einer Feuerkugel fallen sah, täuschte man sich hier, wie bei so vielen anderen Gelegenheiten, daß man glaubte der Fall sei ganz in der Nähe geschehen, hinter einem Gebäude, in einem Walde, jenseits eines nahen Hügels und dergleichen, ja man suchte selbst, eine Zeit lang, wenn auch natürlich ohne Erfolg.
+
+Ich glaube hier schon bei der ersten Beobachtung aus größerer Ferne, ein Wort über diese Täuschung sagen zu müssen, welche so vielfältig sich dargeboten hat. Man nahm an, es seien sehr viele Kugeln gefallen, die man aber nicht finden kann, und was sich schon in der ersten Mitteilung vom 12. Juli angedeutet fand, daß diese Kugeln von Knyahinya aus ausgestreut worden sein. Ja ein Bericht der mir vorlag behauptet sogar "wenn es wahr ist, daß in mehreren Comitaten zu derselben Zeit Meteoriten fielen, wie im Zempliner Comitat zu Hegyi, Eperies, Rakamaz so muß dies vor der großen Explosion statt gefunden haben."
+
+Nun sind aber in jenen Comitaten und Orten keine Meteorsteine gefallen, sondern man hat nur ein Meteor gesehen, und dieses Meteor war kein anderes als dasjenige, welches mit dem Steinfalle von O Sztusicza, Knyahinya und Sztricsava schloß. Man hat früher die Generalisirungen walten lassen, bevor man den eigentlichen Beobachtungen hinlänglich Rechnung getragen, und doch sind es am Ende immer nur diese letztern, welche allein als Grundlage zu sicheren Schlüssen dienen können.
+
+### 3. Gálszécs, neun Meilen südwestlich von Knyahinya.
+
+Bereits unter dem 19. Juni hatte Herr Baron Ludwig v. Fischer, k. k. Rittmeister in der Armee und Gutsbesitzer, an Herrn k. k. Ministerialrat Freiherrn v. Hingenau, damals noch in Přibram, Nachricht über die Erscheinung gegeben, eine Mitteilung welche Herr k. k. Bergrat Dr. Franz Ritter v. Hauer in der Sitzung der k. k. geologischen Reichsanstalt am 24. Juni vorlegte. In Bezug auf einige nähere wünschenswerte Auskünfte erhielt ich später noch freundlichst Nachricht sowohl von Herrn Baron v. Fischer als auch von Herrn Armin Thaiss, Apother in Gálszécs.
+
+Herr A. Thaiss war mit sechs Männern in einem Weinberge nächst dem Orte beschäftigt, als sie plötzlich gegen fünf Uhr, hoch am Firmament eine Feuerkugel mit einem kleinen Schweif bemerkten, in ostnordöstlicher Richtung. Die Kugel kam von Ost und fiel etwas gegen Nord geneigt mit außerordentlicher Schnelligkeit. Als sich dieselbe der Erde näherte, wurde sie dunkler, und dem Auge nicht mehr sichtbar, hingegen sah man eine spannbreite dunkle Rauchwolke vom Fallorte sich östlich hinaufbewegen, scheinbar auf derselben Bahn, auf welcher die Feuerkugel kam. Ganz hoch am Himmel an der Stelle wo die Feuerkugel zuerst wahrgenommen wurde, bildeten sich rechts und links zwei kleine weißliche Wölkchen, die sich östlich weiter bewegten und dann vereinigten. Der Knall in Gálszécs war drei bis vier Minuten nach der Erscheinung hörbar.
+
+Durch den gewaltigen Schall der Detonation erzitterte sowohl die Erde als auch die Luft. In der Ortschaft Vécse, eine halbe Stunde nordöstlich von Gálszécs entfernt, bemerkten die Arbeiter das Steigen des Wassers in einem Brunnen über einen Fuß hoch, doch senkte sich dasselbe bald wieder. In Gálszécs klirrten die Fenster, so wie auch aufeinander gestelltes Porzellan wie bei einem kleinen Erdbeben. Die Feuerkugel war nur wenige Sekunden sichtbar, und erschien mit der Farbe des Blitzes, ganz klein in Vergleich mit dem Vollmonde.
+
+Dies Herrn Baron v. Fischers Bericht, wie ihm die einzelnen Angaben Herr Thaiss mitgeteilt hatte.
+
+Letzterer fügt noch bei, daß er "seitdem mit an die zehn Personen aus der Umgegend gesprochen, welche sämmtlich bestätigende Aussagen gaben, ferner daß eigentlich das Meteor etwas länglich birnförmig erschien. Die Größe ließ sich füglich mit dem vierten Teile der Vollmondscheibe vergleichen. Die Feuerkugel schien so nahe, als wäre sie im Gálszécser Territorium gefallen. Die kleineren lichten Wölkchen, aus welchen das Meteor zu fallen schien, dürften über 45 Grad hoch gewesen sein. Die Rauchsäule, die sich nach dem Verschwinden des Meteors bildete, war intensiv dunkel."
+
+Freiherr v. Fischer teilt mit, daß er selbst das Meteor nicht gesehen, aber doch den Knall gehört. Er fuhr eben in scharfem Trabe auf holprigem Wege von Tussa, nordöstlich von Gálszécs letzterem Orte zu, als in seinem Rücken der Knall erklang, der ihm nur als ein in der Nähe gefallener Schuß wahrnehmbar war, über welchen die Pferde erschracken. Als er auf dem Nachhausewege durch die Ortschaften Gerenda und Kohany kam, war die Bewohnerschaft schon sehr alarmirt, und nun erst wurde ihm der Bericht des Vorganges erstattet.
+
+Der Knall war in südlicher Richtung bis Sátorallya Ujhely, 12 Meilen südöstlich von Knyahinya, vernommen worden.
+
+### 4. Eperies, genau westlich, zwölf Meilen von Knyahinya.
+
+Mannigfaltige Angaben, zum Teil durch Darstellungen unterstützt, verdanke ich einem langjährigen hochgeehrten Freunde und Korrespondenten der k. k. geologischen Reichsanstalt, Herrn Rektor des evangelischen Gymnasiums, Friedrich Hazslinszky, so wie durch seine Vermittlung Herrn Studirenden Johann Kolbay, welcher letztere insbesondere den lebhaften Eindruck, welchen ihm die Erscheinung verursachte, durch eine rasch darauf entworfene Farbenskizze festzuhalten suchte. Ich gebe aus den Mitteilungen beider was mir als Beobachtung und entsprechende Schätzung betrachtet werden zu können erscheint.
+
+Zuerst darf ich wohl die von mir am 12. Juli nach Herrn Hazslinszky gegebene Form der Feuerkugel als "flammender Besen mit einem schwarzroten Stiele voran" in Erinnerung bringen. Er hatte diese Angabe aus der einstimmigen Aussage mehrerer Bewohner von Salgó, eine halbe Meile östlich von Eperies aufgenommen, welches Dorf er in Gesellschaft mit Herrn A. Koch, Professor der Naturgeschichte am dortigen katholischen Gymnasium, besuchte. Mehrere Leute hatten während ihrer Arbeit auf dem Felde das Phänomen deutlich gesehen. "Alle sagten entschieden, es hätte die Form eines brennenden Besens. Voran ging ein kurzer schwarzer Stock, durch welchen wenig Roth durchleuchtete, dessen oberstes Ende wie frisch angezündetes Wachholderreisig flammte. Der weiße Rauch zog sich als weißer Streif weit am Himmel herauf. Der "Hexenbesen" verschwand mit "großem Krachen" hinter der östlich vorliegenden Hügelreihe.
+
+Etwas weiter südlich "weidete Janko Karabuta, der wohlhabendste Bauer in Salgo, ein wohlbekannter redlicher Mann, seine Ochsen in einem Thale, welches sich vom Trachytgebirge gegen den Fluß Szekcso herabzieht, und stand mit dem Gesichte gegen Osten ewandt. Er sah eine weiße glänzende Kugel so groß als die Sonne in senkrechter Richtung in Begleitung eines kurzen Donners" auf das östlich vorliegende Gebirge einfallen. "Ein langer weißer Streif am Himmel blieb als Zeichen seines Weges eine Zeit lang zurück, und verschwand spurlos."
+
+Die Bewohner hatten zwei verschiedene Punkte auf der Hügelreihe aus der Erinnerung bezeichnet, hinter welchen das Meteor verschwunden war, aber beide fehlerhaft, denn die Richtung war genau östlich durch den Fall selbst beurkundet. Man würde nach den Angaben sehr weit irre gegangen sein, hätte man sie als Wegweiser benützen wollen. Aber dieser Mangel an Orientirung in den Weltgegenden ist ja bekannter Maaßen in tief continentalen Ländern eine sehr verbreitete Tatsache.
+
+In Bezug auf die Verschiedenheit des Eindruckes möchte ich hier bemerken, daß dies wohl gar sehr von den Individualitäten der Beobachter abhängig ist, und daher wohl nicht jeder das ganz Gleiche gesehen haben muß --- immer bleibt es Aufgabe den Eindruck unverkümmert zu verzeichnen. Die Form des brennenden Besens mit einem Stiele voran hat aber unter andern ein auffallend ähnliches Gegenstück in der Beobachtung des Lieutenants Aylesbury in Bezug auf den Fall von Quenggouk in Pegu, dessen Abbildung ich in meinem Bericht, am 5. December 1861 der hochgeehrten Klasse vorzulegen die Ehre hatte.* Nur zog dort das Meteor nahe horizontal, hier fast senkrecht nieder.
+
+*) Sitzungsb. d. mathem.-naturw. Kl. d. kais. Akad. d. Wissensch. Bd. 49., S. 637.
+
+Die Leute zu Terjekfalva, südöstlich unweit Salgó sagten aus, daß "der Schlag," als das Meteor scheinbar auf die Berge traf, "so heftig war, daß ihr Dorf erbebte."
+
+Aus dieser Veranlassung berichtet Herr Hazslinszky auch, daß Herr Domherr Stephan Piller, Pfarrer in Töke Terebes im Zempliner Comitate, 1 1/2 Meile südöstlich von Gálszécs, und etwas über 9 Meilen südöstlich von Knyahinya, die Bemerkung machte, "daß auch bei dem stärksten Donnerwetter seine Fenster nicht erklirren, daß aber bei dieser heftigen Detonation nicht nur die Fenster klirrten, sondern daß auch das ganze Haus erbebte."
+
+In Eperies selbst war es namentlich, ebenfalls nach Herrn Hazslinszky's Bericht, Herr Kaufmann Daniel Ozwald, welcher den Anfang des Phänomens beobachtete. Er führte Herrn Hazslinszky an den Ort der Beobachtung in dem Hofe seines Hauses und erzählte, wie er etwa um 5 Uhr, nachdem er seinen Tauben Futter gestreut, eben in das Zimmer zurückkehren wollte, ein eigentümliches Zischen sein Auge gegen den Himmel zog. Er sah von einer Stelle, welche Herr Hazslinszky auf etwa 40 Grad über dem Horizont schätzte "einen schmalen weißen Streif, welcher nach unten in einen Knoten endete, sich "mit großer Schnelligkeit gegen einen" vorliegenden "Dachwinkel zu bewegen," welchen Herr Hazslinszky auf etwa 30 Grad über dem Horizont schätzte. "Der anfangs weiße Knoten wurde immer röter und übertraf als er das Dach erreichte an Glanz die Sonne. Der Knoten hatte dort die Form eines mit der Spitze gegen den zurückgelassenen Schweif gekehrten Kegels." Herr Ozwald lief eiligst auf die Gasse, in der Meinung das Meteors sei hinter den Häusern niedergefallen, "und zeigte den noch immer sichtbaren Schweif den Anwesenden, zuerst Herrn Alexander Bornemisza." (Die Länge des Schweifes betrug etwa 20 Grad.) Nach ungefähr zwei Minuten zog sich der weiße Nebelstreif in seiner untern Hälfte in ein Wölkchen zusammen, welches sich später mit einem zweiten weißen Wölkchen vermengte und verschwand."
+
+Der Nebelstreifen bildete nach der Schätzung des Herrn Hazslinszky nach der ihm mitgeteilten Angabe, welche er ebenfalls in eine orientirte Skizze eintrug, einen Winkel von etwa 15° mit einer Vertikallinie, dem größten westöstlichen Kreise angehörig, von Norden her genähert.
+
+### 5. Die wahre Einfallsbahn des Meteors.
+
+Ich werde unmittelbar an die vorhergehende Angabe anschließend, versuchen, durch Kombination der Beobachtungen in Eperies und Gálszécs mit jener in Unghvár die Richtung des Falles näher zu erörtern. Es gelingt wohl am kürzesten und anschaulichsten durch eine geographische Projektion Fig. 12, zwischen dem Fallorte Knyahinya und den Beobachtungsorten Unghvár, Gálszécs und Eperies. Zum Ausgangspunkte glaube ich die Beobachtung zu Unghvár nehmen zu können, für welche die Grundlinie _UK_ gilt, und die Projektion der verbindenden Linien mit dem höchsten Punkte des Meteors bei 50° Höhe, nämlich _UV_.
+
+[Fig. 12.]()
+
+Für Gálszécs wurde nur ein Fall bemerklich gemacht, bei dem die Bahn nahe senkrecht, aber doch etwas geneigt von Ost gegen Nord sich darstellte. Für Eperies traf die Fallbahn ebenfalls nahe senkrecht in ähnlicher aber entgegengesetzter Weise, von Nord gegen Süd ein. Beides wird in der Projektion erreicht, wenn man den Winkel _EKG_ (Eperies-Knyahinya-Gálszécs) = 27° halbirt, und die Mittellinie _FK_ bis zum Durchschnitte mit _UV_ verlängert. _MK_ für Gálszécs, _LK_ für Eperies sind dann die Projektionen der scheinbaren Bahnen, freilich nur mit einer ganz kleinen Abweichung von etwa 1° von der ganz vollkommen senkrechten Richtung. Von größeren Winkeln aber kann doch keine Rede sein, weil sonst die eine der Beobachtungen ganz fehlerhaft gesprochen werden müßte.
+
+Nimmt man, wie in Fig. 11, die Höhe des Beginnes des Leuchtens mit 7.12 Meilen an, so erhöht sich dieselbe für den Punkt _V_ auf 7 3/4 Meilen. Dann aber ergibt sich ein Höhenwinkel für die Beobachtung, von Gálszécs aus auf 37°, von Eperies aus auf 31°.
+
+Ein Höhenwinkel von 40° in Eperies würde eine absolute Höhe des Punktes _V_ von 11 1/4 Meilen, und für Gálszécs den Winkel von 47 1/2°, für Unghvár von 60° bedingen.
+
+Ein Höhenwinkel von 70° in Eperies würde eine absolute Höhe des Punktes _V_ von 37 Meilen, und für Gálszécs den Winkel von 74°, für Unghvár von 80° bedingen.
+
+Eine solche Höhe würde um nahe 10 deutsche Meilen die größte der Höhen für den Beginn des Leuchtendwerdens der Sternschnuppen übersteigen, 131 englische Meilen (= 27 D. M.) wie selbe von Herrn Alexander Herschel am 10. August 1863 beobachtet und berechnet worden sind. Und selbst diese Höhe hatte Alexander Herschel als wahrscheinlich überschätzt bezeichnet.*
+
+*) Quetelet. Sur les étoiles filantes du 10 Août 1863. Extrait d'une lettre de Sir John Herschel associé de l'académie à M. Ad. Quetelet. Bulletins de l'A. R. de Belgique, 2me Ser. T. 16. Nr. 9.
+
+Bei dem Umstände, daß kaum irgend etwas in der Praxis so leicht überschätzt wird, wie ein Höhenwinkel, und doch auch nicht einmal annähernde astronomischen ähnliche Schätzungen vorliegen, glaube ich mich wohl auf diese kleinste der gegebenen beschränken zu dürfen.
+
+So wäre die Annahme, daß das Meteor in einer Höhe von 7 3/4 Meilen in der Atmosphäre zu leuchten begann, und daß seine Bahn nahe senkrecht, mit nur 6° Zenithdistanz, in einer Richtung von Nord 76° 30′ Ost nach Süd 76° 30′ West _V′VF_ (Fig. 8) sich bewegte.
+
+Die Lage der aufgefundenen Steine stimmt ganz gut mit dieser Annahme; eine Linie durch den Fallort _B_ des großen Blockes ziemlich mitten durch die von Fundstücken bedeckte Oberfläche in Fig. 1 gezogen, besitzt die Lage von N 67° O gegen S 67° W.
+
+Die Vergleichung mit der Richtung, welche aus den Erhebungen des Herrn Pukáts, bei seiner Ausgrabung folgt, war, wie oben erwähnt, von N. 31° O. gegen S. 31° W. bei einer Zenithdistanz von etwa 27°.
+
+Daß sich beim Einbohren die Zenithdistanz zu vergrößern geneigt zeigt, wird kaum Bedenken erregen können, wo der senkrechte Widerstand wohl eindringlicher angenommen werden darf, als ein seitlicher. Aber auch eine Herabminderung des Abweichungswinkels von 70° 30′ auf 31° dürfte ganz annehmbar erscheinen, wenn man annimmt, daß die Rotation des Steines beim Fortschreiten von links gegen rechts herum stattfand, von dem umgebenden Grunde dagegen der Widerstand entsprechend von rechts gegen links wirkte. Ein Teil des Steines, wie die Zeichnung Fig. 6, Seite 44 zeigt, blieb zuerst in der Tiefe gänzlich feststecken, und der rückwärts folgende brach von demselben los, worauf freilich eine fernere Rotation nicht mehr stattfand.
+
+### 6. Astronomische Orientirung.
+
+Es ist nun auch leicht, die astronomische Orientirung der Bahn des Meteoritenschwarmes aufzusuchen, freilich mit dem Charakter einer nur beiläufigen Näherung, welche ja hier von dem Gegenstande selbst unzertrennlich ist. Am 9. Juni stand nämlich die Capella im Cepheus nur wenig südlich vom Zenith von Knyahinya. Nachmittag 5 Uhr standen die südlicheren Sterne des großen Bären an dieser Stelle. Auf diese Gegend ungefähr weist also die entsprechend den vorliegenden Angaben angenommene Richtung des Falles, als Grundlage zu weiterer Betrachtung.
+
+### 7. Eperies. Fortsetzung. Darstellungen von Herrn Kolbay.
+
+1\. Eperies. Herr Johann Kolbay, Studirender in Eperies, hatte den Muth, den tiefen Eindruck, welchen das unverhofft erblickte Meteor auf ihn hervorbrachte auch durch Darstellungen in Farben festzuhalten. Für die Einsendung derselben bin ich Herrn Hazslinszky zu dem größten Danke verpflichtet, sowie Herrn Kolbay selbst für spätere Bemerkungen zu denselben, und auch für weitere Mitteilungen.
+
+Herr Kolbay hatte die Erscheinung in der Nähe von Eperies gesehen. Nur schwacher Anflug von Federwolken lag nahe dem Horizont.
+
+Die landschaftliche Darstellung Fig. 1, Taf. 3., gibt den allgemeinen Eindruck im Falle. Die beiden Bilder, Fig. 2, Taf. 3. und Fig. 3, Taf. 3. stellen etwas größer gehalten den so sehr lebhaften Eindruck der reichen Farbentöne vor, in welchem das Meteor erschien. Herr Kolbay begleitet sie mit einigen Worten. Er sah bei einem unwillkürlichen Blicke nach oben am Himmelsgewölbe die Erscheinung, und zwar aus einer Höhe von 68 bis 70 Grad, "welche mit beschleunigtem Fluge dahineilte. Die Farbe war die der Weißglühhitze des Eisens und der Schweif war zu beiden Seiten mit einem Ultramarin-Saume geschmückt, nach unten ging die Farbe in Orange über," und man glaubte lebhaft einen festen Körper innerhalb der Flammenhülle zu sehen. "Oftmals flackerte der Schweif auf, besonders zuletzt als die Erscheinung hinter der nächsten Bergkette hinunter tauchte. Übrigens muß ich gestehen, daß ich das letzte großartigste "Wedeln mit dem Schweife" nicht einmal gut beachten konnte, ich war zu sehr von der Erscheinung selbst ergriffen. Über dem Schweife des Meteors sammelte sich Rauch zu einem kleinen Wölkchen."
+
+Das Meteor in dem landschaftlichen Bilde Taf. 3., Fig. 1 gibt den Eindruck eines vollständig senkrechten, oder nur wenig von demselben abweichenden Falles, das Bild Fig. 2 gibt das Meteor bei größerer Höhe, Fig. 3 bereits in einer tieferen, der Erde mehr genäherten Lage. Während es in der ersten scheinbar mehr gestreckt ist, hatte es noch von seiner kosmischen Geschwindigkeit nicht so sehr viel eingebüßt. Gegen das Ende der Bahn zu, wo bereits unser irdischer atmosphärischer Widerstand überwiegt, könnte man sich wohl denken, daß dieser gewissermaassen stoßweise auf den Inhalt wirkt, und dadurch eine Ungleichförmigkeit in der Lichterscheinung hervorbringt, unterstützt vielleicht durch die Beschaffenheit des Inhaltes, welcher hier aus so vielen, und ungleich großen Teilen bestand.
+
+Ich muß nicht versäumen beizufügen, daß ich die landschaftliche Darstellung nur mit den Farben des Meteors erhielt, die beiden Meteorbilder aber auf schwarzem Grunde. Auf diesem tritt freilich die Intensität des Glanzes mehr der Natur entsprechend hervor, aber ich glaubte doch der Zeit des Tages entsprechend, für die Veröffentlichung die blaue Himmelsfarbe des Grundes vorziehen zu sollen.
+
+2\. Kapi. Noch eine Darstellung, aus einer tiefern Stelle der Fallbahn verdanke ich ebenfalls dem Werke des Herrn Kolbay aus einer Beobachtung des Meteors zu Kapi, Fig. 4, Taf. 3., anderthalb Meilen nordöstlich von Eperies, nach der aufmerksamen Beobachtung des namentlich auch von Herrn Hazslinszky hochverehrten Biedermannes, Herrn Karl Rainer, Pächters des Gutsbesitzes zu Kapi. Nur ganz niedriges Hügelland liegt gegen Osten vor.
 
 Man glaubt aus dem Inhalte des Feuerballs das gewaltsame 
 Hinausschleudern kleinerer Körper durch die gewaltig rotirenden 
