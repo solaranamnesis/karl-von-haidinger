@@ -8,6 +8,58 @@
 
 # [Zweiter Bericht.]()
 
+## [Vorwort. Quellen.]()
+
+## [Die Erscheinungen im Falle nahe am Fallorte.]()
+
+### 1. [Lage, geographisch und geologisch. Nationalitäten. Ortsnamen.]()
+
+### 2. [Bericht von Herrn A. Pukáts über den Fall.]()
+
+### 3. [Mitteilungen von Herrn A. Pokorny.]()
+
+### 4. [Mitteilungen von Herrn Wenzel Negedlo.]()
+
+### 5. [Berieht über die Aufsammlung der Steine.]()
+
+### 6. [Bericht über die Ausgrabung des großen Steines. Von A. Pukáts.]()
+
+### 7. [Mitteilungen des Herrn A. Pukáts.]()
+
+### 8. [Verteilung der gefallenen Steine auf der Oberfläche.]()
+
+### 9. [Bericht des Herrn Dr. v. Zsiro an Herrn Tavernicus Baron v. Sennyey.]()
+
+### 10. [Letzte Nachrichten über Anzahl und Grösse der Steine.]()
+
+### 11. [Beschaffenheit der Steine.]()
+
+### 12. [Der große Stein.]()
+
+### 13. [Schlacken, fälschlich für Meteoriten gehalten.]()
+
+## 2. [Beobachtungen aus grösseren Entfernungen.]()
+
+### 1. [Unghvár, sechs Meilen südsüdwestlich von Knyahinya.]()
+
+### 2. [Täuschungen in Bezug auf den Fall von Feuerkugeln.]()
+
+### 3. [Gálszécs, neun Meilen südwestlich von Knyahinya.]()
+
+### 4. [Eperies, genau westlich, zwölf Meilen von Knyahinya.]()
+
+### 5. [Die wahre Einfallsbahn des Meteors.]()
+
+### 6. [Astronomische Orientirung.]()
+
+### 7. [Eperies. Fortsetzung. Darstellungen von Herrn Kolbay.]()
+
+### 8. [Rakamaz, östlich von Tokay, 16 Meilen südwestlich von Knyahinya.]()
+
+### 9. [Szent Miklos, 28 Meilen nahe westlich von Knyahinya]()
+
+# [Schluss.]()
+
 ---
 
 # Erster Bericht.
