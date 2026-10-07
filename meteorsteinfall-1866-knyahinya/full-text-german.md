@@ -4,27 +4,27 @@
 
 ---
 
-# [Erster Bericht.]()
+# [Erster Bericht.](#erster-bericht-1)
 
-# [Zweiter Bericht.]()
+# [Zweiter Bericht.](#zweiter-bericht-1)
 
-## [Vorwort. Quellen.]()
+## [Vorwort. Quellen.](#vorwort-quellen-1)
 
-## 1. [Die Erscheinungen im Falle nahe am Fallorte.]()
+## 1. [Die Erscheinungen im Falle nahe am Fallorte.](#die-erscheinungen-im-falle-nahe-am-fallorte)
 
-### 1.1. [Lage, geographisch und geologisch. Nationalitäten. Ortsnamen.]()
+### 1.1. [Lage, geographisch und geologisch. Nationalitäten. Ortsnamen.](#1-lage-geographisch-und-geologisch-nationalitäten-ortsnamen)
 
-### 1.2. [Bericht von Herrn A. Pukáts über den Fall.]()
+### 1.2. [Bericht von Herrn A. Pukáts über den Fall.](#2-bericht-von-herrn-a-pukáts-über-den-fall)
 
-### 1.3. [Mitteilungen von Herrn A. Pokorny.]()
+### 1.3. [Mitteilungen von Herrn A. Pokorny.](#3-mitteilungen-von-herrn-a-pokorny)
 
-### 1.4. [Mitteilungen von Herrn Wenzel Negedlo.]()
+### 1.4. [Mitteilungen von Herrn Wenzel Negedlo.](#4-mitteilungen-von-herrn-wenzel-negedlo)
 
-### 1.5. [Berieht über die Aufsammlung der Steine.]()
+### 1.5. [Berieht über die Aufsammlung der Steine.](#5-berieht-über-die-aufsammlung-der-steine)
 
-### 1.6. [Bericht über die Ausgrabung des großen Steines. Von A. Pukáts.]()
+### 1.6. [Bericht über die Ausgrabung des großen Steines. Von A. Pukáts.](#6-bericht-über-die-ausgrabung-des-großen-steines-von-a-pukáts)
 
-### 1.7. [Mitteilungen des Herrn A. Pukáts.]()
+### 1.7. [Mitteilungen des Herrn A. Pukáts.](#7-mitteilungen-des-herrn-a-pukáts)
 
 ### 1.8. [Verteilung der gefallenen Steine auf der Oberfläche.]()
 
@@ -38,27 +38,27 @@
 
 ### 1.13. [Schlacken, fälschlich für Meteoriten gehalten.]()
 
-## 2. [Beobachtungen aus grösseren Entfernungen.]()
+## 2. [Beobachtungen aus grösseren Entfernungen.](#2-beobachtungen-aus-grösseren-entfernungen-1)
 
-### 2.1. [Unghvár, sechs Meilen südsüdwestlich von Knyahinya.]()
+### 2.1. [Unghvár, sechs Meilen südsüdwestlich von Knyahinya.](#1-unghvár-sechs-meilen-südsüdwestlich-von-knyahinya)
 
-### 2.2. [Täuschungen in Bezug auf den Fall von Feuerkugeln.]()
+### 2.2. [Täuschungen in Bezug auf den Fall von Feuerkugeln.](#2-täuschungen-in-bezug-auf-den-fall-von-feuerkugeln)
 
-### 2.3. [Gálszécs, neun Meilen südwestlich von Knyahinya.]()
+### 2.3. [Gálszécs, neun Meilen südwestlich von Knyahinya.](#3-gálszécs-neun-meilen-südwestlich-von-knyahinya)
 
-### 2.4. [Eperies, genau westlich, zwölf Meilen von Knyahinya.]()
+### 2.4. [Eperies, genau westlich, zwölf Meilen von Knyahinya.](#4-eperies-genau-westlich-zwölf-meilen-von-knyahinya)
 
-### 2.5. [Die wahre Einfallsbahn des Meteors.]()
+### 2.5. [Die wahre Einfallsbahn des Meteors.](#5-die-wahre-einfallsbahn-des-meteors)
 
-### 2.6. [Astronomische Orientirung.]()
+### 2.6. [Astronomische Orientirung.](#6-astronomische-orientirung)
 
-### 2.7. [Eperies. Fortsetzung. Darstellungen von Herrn Kolbay.]()
+### 2.7. [Eperies. Fortsetzung. Darstellungen von Herrn Kolbay.](#7-eperies-fortsetzung-darstellungen-von-herrn-kolbay)
 
-### 2.8. [Rakamaz, östlich von Tokay, 16 Meilen südwestlich von Knyahinya.]()
+### 2.8. [Rakamaz, östlich von Tokay, 16 Meilen südwestlich von Knyahinya.](#8-rakamaz-östlich-von-tokay-16-meilen-südwestlich-von-knyahinya)
 
-### 2.9. [Szent Miklos, 28 Meilen nahe westlich von Knyahinya]()
+### 2.9. [Szent Miklos, 28 Meilen nahe westlich von Knyahinya](#9-szent-miklos-28-meilen-nahe-westlich-von-knyahinya-genaue-richtung-von-knyahinya-aus-n-86-w)
 
-# [Schluss.]()
+# [Schluss.](#schluss-1)
 
 ---
 
