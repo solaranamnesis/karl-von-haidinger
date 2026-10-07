@@ -100,7 +100,7 @@ Er ist, wie man von Meteoriten zu sagen pflegt ein "Ganzer Stein," nicht ein Bru
 
 An den schärfsten Kanten ist der Stein hin und wieder abgestossen. Es muß dies vorläufig hinreichen, um zu beurteilen, in welche Abteilung der bisher bekannten Meteorsteine sich dieser neue von Knyahinya bei Berezna unterordnet, und man kann mit ziemlicher Sicherheit schließen, wie dies Herr Direktor Hörnes andeutete, daß er in die Nähe von Parnallee, Assam und andern mit einer marmorirten Farbenzeichnung im Schliffe (marbled appearance), zu ordnen sein wird. Die Eröffnung des Innern durch Entzweischneiden, Schleifen und Poliren, die chemische Analyse endlich, der Metallteile sowohl als der steinigen Masse wird fernere Vergleichungspunkte gewähren, wenn späterhin mehrere Exemplare in den Kreis der Untersuchung gezogen werden. Das eigenthümliche Gewicht des Exemplares fand ich bei 20° R. = 3.520.
 
-[Fig.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-1.png)
+[Fig.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-0.png)
 
 Jedenfalls glaube ich, ist bei der heutigen Mitteilung, welche doch noch sehr den Charakter einer bloß vorläufigen besitzt, so viel gewonnen, daß der Fall von Knyahinya bei Berezna im Ungher-Comitate in Ungarn am 9. Juni 1866 zu jenen zählt, in welchen ein ziemlich ansehnlicher Schwarm einzelner Gesteinfragmente auf unserer Erde angekommen ist.
 
@@ -160,7 +160,7 @@ Eine der ersten meiner spezielleren Anfragen war an eine Adresse gerichtet gewes
 
 Aber sein Schwiegersohn lebte noch, und das war eben der k. k. Waldbereiter Herr Anton Pokorny in Nagy Berezna, an welchen ich mich, wenn auch einige Tage später, ebenfalls um Auskünfte gewendet hatte. Er gab nun dem ihm im Dienste zugeteilten k. k. Forstkandidaten Herrn Anton Pukáts den Auftrag, in Bezug auf die Erscheinung an mich zu berichten.
 
-[Fig. 1.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-2.png)
+[Fig. 1.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-1.png)
 
 Herrn Pukáts bin ich also für den ersten vollkommen individuellen Bericht welchen ich hier, teils wörtlich, teils etwas abgekürzt wiedergebe, zu größtem Danke verpflichtet.
 
@@ -168,7 +168,7 @@ Zur genaueren Orientirung gab Herr Pukáts in Fig. 1 und Fig. 2 den Plan sowohl,
 
 "Am 9. des Monats Juni war ich im Holzschlage auf dem Hügel Cseresnyovati, östlich nahe an Nagy Berezna beschäftigt, auf dem in den beiden Skizzen durch _A_ bezeichneten Punkte, der auf dem Nordabhange des Hügels liegt, also hier in der Ansicht Fig. 2 durch denselben Hügel verdeckt wird."
 
-[Fig. 2.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-3.png)
+[Fig. 2.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-2.png)
 
 **A.** _Der Punkt A, von welchem aus Herr Pukáts den Fall beobachtete, liegt nicht auf der Kante sondern am Abhange des Hügels Cseresnyovati gegen Norden zu, welchen man also hier auf der Ansicht nicht sehen kann, weil er durch den Hügel selbst gedeckt ist._
 
@@ -180,9 +180,9 @@ Zur genaueren Orientirung gab Herr Pukáts in Fig. 1 und Fig. 2 den Plan sowohl,
 
 Nach den freundlichst mitgeteilten Skizzen Fig. 3 und Fig. 4, glaube ich dies so verstehen zu sollen, daß Fig. 3 die Ansicht im (theoretischen) Grundrisse gibt, während Fig. 4 die Erscheinung auf die Beobachtungsebene projizirt, und also den Höhenwinkel anschaulich zu machen bestimmt ist.
 
-[Fig. 3.]()
+[Fig. 3.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-3.png)
 
-[Fig. 4.]()
+[Fig. 4.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-4.png)
 
 "Nach Verlauf von 3/4 einer Minute fing es an in der Wolke wie in einem Dampfkessel zu kochen und zu brausen, das sich in ein Rollen gleich einem schweren Donner auflöste, schwach, stärker und wieder schwach abfallend, und gegen eine Minute dauerte. Die Wolke, die sich schon während des Rollens bewegte, kam auf uns mit wachsender Geschwindigkeit, mit stets größerem Sehwinkel, also näher, und verschwand scheinbar in nordsüdlicher Richtung westlich vom Beobachtungsorte über Nagy Berezna ziehend nach Verlauf von 4 bis 5 Minuten immer kleiner werdend aus dem Gesichtskreise."
 
@@ -354,9 +354,9 @@ Schon in den ersten Tagen nach dem Falle hatten die Herren k. k. Waldbereiter Po
 
 Auf der Ansicht Fig. 2 ist diese Wiese von dem vorliegenden Javornik-Berg bedeckt, und daher nicht sichtbar. Sie schließt sich an den jenseitigen Bergrücken rechts an den Sztyinszka-Felsen in dem weiteren Verlaufe desselben an.
 
-[Fig. 5.]()
+[Fig. 5.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-5.png)
 
-[Fig. 6.]()
+[Fig. 6.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-6.png)
 
 Es ließ sich wohl vermuten, daß diese Grube durch einen größeren Meteorstein verursacht worden sei. "Von Herrn Waldbereiter ausgesendet, "sagt Herr Pukáts," machte ich mich eines Tages um 3 Uhr Früh auf, um den Stein zu heben. Beim Anlangen auf der Wiese erblickte ich ein etwa 4 Fuß breites und 4 1/2 Fuß tiefes Loch mit aufgeworfenen, umgestülpten Rändern, wie bei einem durch einen elektrischen Funken durchgeschlagenen Kartenblatte. Rasenstücke lagen bis dreißig Klafter vom Loch entfernt umhergeschleudert. Ohne Zweifel ag dort ein Stein, aber wie tief? Mit nur sehr wenig Werkzeugen suchte ich zuerst durch Einschlagen eines Pflockes die Tiefe zu ergründen. Nach dem ersten Einschlagen ließ ich um den Pflock herum die Erde weggraben und denselben sodann tiefer einschlagen, was auch in dem zerbröckelten Karpathen-Sandsteingebilde nicht schwer war. Aber immer noch kein fester Grund. Ein solcher wurde erst erreicht als ich den Pflock in der Richtung γ einschlagen ließ. Erst jetzt stießen wir auf etwas festes, aber ein abgebrochenes Stück (α), welches ich für einen Teil des Ganzen ansprach, und daher weiter graben ließ, bis wir den großen Stein β gefunden hatten. Er lag über 11 Fuß tief in dem Boden, und war in zwei Teile zerspalten. Da jeder Teil mehr als dritthalb Zentner wiegt, so gelang es nur mit großer Anstrengung und mit eingelegten Treppenvorrichtungen, da nur Ein Mann mit voller Gewalt angreifen konnte," und endlich Herr Pukáts selbst Hand anlegte "dieselben herauszuwälzen. Der Grund, auf dem der Stein lag, war steinhart zusammengedrückt."
 
@@ -476,7 +476,7 @@ Die Steine fielen alle einzeln herab. Es war nicht das Ganze Ein Stein, der etwa
 
 *) Eine Leitform der Meteoriten. Sitzung am 19. April 1860. Sitzungsb. d. kais. Akad. d. Wissensch. mathem.-naturw. Kl. Bd. 40. S. 525. --- Stannern. Ein zweiter Meteorstein, durch seine Rinde genau in seiner kosmischen Bahn orientirt. Sitzung am 22. Mai 1862. Sitzungsb. Bd. 45. S. 791.
 
-[Fig. 7.]()
+[Fig. 7.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-7.png)
 
 Auch bei einem der größeren Stücke von 1 Pfund 18 Loth, im k. k. Hof-Mineralienkabinet sind Orientirungsspuren vorhanden.
 
@@ -507,11 +507,11 @@ Man kann unmöglich daran zweifeln, daß der Meteorit ganz war, nur Ein Stück, 
 
 Der Stein von 27 Pfund, und die von Herrn Negedlo aufgefundenen Splitter und Bruchstücke ergänzen sehr gut das Bild, welches man sich von dem Vorgange zu entwerfen durch die übrigen Erscheinungen angezogen fühlt.
 
-[Fig. 8. --- Rückseite.]()
+[Fig. 8. --- Rückseite.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-8.png)
 
-[Fig. 9. --- Ansicht von oben.]()
+[Fig. 9. --- Ansicht von oben.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-9.png)
 
-[Fig. 10. --- Vorderseite.]()
+[Fig. 10. --- Vorderseite.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-10.png)
 
 Die Zusammenstellung der Skizzen des großen Steines im kleinen Maaßstabe von 1/12 der Natur wird eine gute Übersicht gewähren, so wie sie hier unter einander geordnet sind.
 
@@ -541,7 +541,7 @@ Das Meteor war in Unghvár von Herrn Franz Kistler selbst gesehen worden, als ei
 
 In einem Diagramm, Fig. 11, nach den Weltgegenden orientirt und hier auf die genaue geographische Lage von Knyahinya bezogen, gab Herr Kistler freundlichst auch graphisch die Richtung des Falles, aus etwa 50 Grad Höhe bis zu einiger Entfernung von der Erde, die in der Zeichnung ungefähr auf die Höhe von 10 Grad fallt.
 
-[Fig. 11.]()
+[Fig. 11.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-11.png)
 
 Bei der Entfernung von Unghvár vom Fallorte Knyahinya von 6 Meilen, würde dies bei einer Zenithdistanz von 6° in einer auf die Gesichtslinie senkrechten Ebene einem Falle aus einer Höhe von 7.12 Meilen Anfangspunkt bis 1.58 Meilen von der Erde Endpunkt für den sichtbaren Lauf des Meteors entsprechen, und es ist dadurch für Eine Richtung ein Anhaltspunkt geboten.
 
@@ -599,7 +599,7 @@ Der Nebelstreifen bildete nach der Schätzung des Herrn Hazslinszky nach der ihm
 
 Ich werde unmittelbar an die vorhergehende Angabe anschließend, versuchen, durch Kombination der Beobachtungen in Eperies und Gálszécs mit jener in Unghvár die Richtung des Falles näher zu erörtern. Es gelingt wohl am kürzesten und anschaulichsten durch eine geographische Projektion Fig. 12, zwischen dem Fallorte Knyahinya und den Beobachtungsorten Unghvár, Gálszécs und Eperies. Zum Ausgangspunkte glaube ich die Beobachtung zu Unghvár nehmen zu können, für welche die Grundlinie _UK_ gilt, und die Projektion der verbindenden Linien mit dem höchsten Punkte des Meteors bei 50° Höhe, nämlich _UV_.
 
-[Fig. 12.]()
+[Fig. 12.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-12.png)
 
 Für Gálszécs wurde nur ein Fall bemerklich gemacht, bei dem die Bahn nahe senkrecht, aber doch etwas geneigt von Ost gegen Nord sich darstellte. Für Eperies traf die Fallbahn ebenfalls nahe senkrecht in ähnlicher aber entgegengesetzter Weise, von Nord gegen Süd ein. Beides wird in der Projektion erreicht, wenn man den Winkel _EKG_ (Eperies-Knyahinya-Gálszécs) = 27° halbirt, und die Mittellinie _FK_ bis zum Durchschnitte mit _UV_ verlängert. _MK_ für Gálszécs, _LK_ für Eperies sind dann die Projektionen der scheinbaren Bahnen, freilich nur mit einer ganz kleinen Abweichung von etwa 1° von der ganz vollkommen senkrechten Richtung. Von größeren Winkeln aber kann doch keine Rede sein, weil sonst die eine der Beobachtungen ganz fehlerhaft gesprochen werden müßte.
 
