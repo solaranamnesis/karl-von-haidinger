@@ -414,7 +414,7 @@ Ein Stein gefunden von Dahulics Ivan, dem Commissionsbericht beigelegt. 5 1/2 Pf
 
 8 Stücke, teils von Herrn Dr. v. Zsiro erworben, teils dem Bericht beigelegt. 1 1/2 Pfd.
 
-1 Stück Dr. L. Riczko, Ungvár ohne Gewichtsangabe.*
+1 Stück Dr. L. Riczko, Ungvár ohne Gewichtsangabe.[^1]
 
 1 Stück Ingenieur Coloman Toth. 4 Pfd.
 
@@ -436,7 +436,7 @@ Ungvár. 11 Pfd.
 
 2 Stücke Prof. Hazslinszky 1 Pfd., Hollender 27 Lth. Eperies. 1 3/4 Pfd.
 
-2 Stück Ingen. F. Kistler Ungvár, 1 St. 12 Lth., 1 St. 13 Lth. und noch mehrere.* 1 Pfd.
+2 Stück Ingen. F. Kistler Ungvár, 1 St. 12 Lth., 1 St. 13 Lth. und noch mehrere.[^2] 1 Pfd.
 
 27 Stück Herr Prof. Alexander Duma sammelte vom Volke 27 Stück, an die Ung. Akad. in Pest gesandt zusammen. 28 Pfd.
 
@@ -445,10 +445,6 @@ Ungvár. 11 Pfd.
 Herr Dr. v. Zsiro verzeichnet noch namentlich nach den Besitzern fünf kleine Stücke, und schätzt die damals gefundene Gesamtzahl der Stücke auf achtzig, das Gesamtgewicht auf anderthalb Zentner.
 
 Viele Stücke sind begreiflich nach verschiedenen Richtungen hin verteilt worden.
-
-*) Herr Dr. Lorenz Riczko übersandte später ein Stück von 1 1/8 Pfd. als freundliches Geschenk, nebst einem Bericht über den Fall an das k. k. Hof-Mineralienkabinett in Wien. Von einem in seinem Besitze nach früheren Angaben befindlichen Steine von angeblich 27 Pfund ist hier keine Rede mehr.
-
-*) Nach verschiedenen Mitteilungen hatte Herr F. Kistler damals schon 1 Stück von 17 1/2 Loth an das k. k. Hof-Mineralienkabinett gesandt. (Sitzung d. kais. A. d. W. am 12. Juli), sodann auch (14 1/2 Loth) an die k. k. geologische Reichsanstalt und an Herrn Prof. Kriesch in Ofen (15 3/4 Loth).
 
 ### 10. Letzte Nachrichten über Anzahl und Größe der Steine.
 
@@ -472,9 +468,7 @@ Wirft man einen Blick auf diese verschiedenen Schätzungen zu verschiedener Zeit
 
 ### 11. Beschaffenheit der Steine.
 
-Die Steine fielen alle einzeln herab. Es war nicht das Ganze Ein Stein, der etwa zersprang, und durch das Zerspringen Veranlassung zu der Knallerscheinung gab, sondern jeder der Steine fiel einzeln. Vor dem Eintritt in den Raum der Atmosphäre, waren sie freilich dicht auf einen Klumpen geschlossen, aber hier fanden sie Widerstand, das Kleine mehr als das Große, so wurden sie voneinander getrennt. Zuallererst blieb das Staubförmige als Nebelwolkenspur zurück. Jeder einzelne Stein von denen, welche herabfielen und aufgefunden wurden ist mit seiner Rinde rundum bekleidet, von den größten beginnend, bis zu dem oben erwähnten Exemplar von 1/8 Loth (genauer gewogen 2.245 Gr.) Gewicht --- welches von der sieben Jahre alten Maria Mohnar aus Sztricsava gefunden wurde, und das ich Herrn Negedlo verdanke. Aber sie sind sämtlich beschädigt. Es ist wohl ganz natürlich daran zu denken, dass diese Beschädigungen während des zweiten Teiles der Schallerscheinungen, nach dem ersten Schlage also, in welchem das Vakuum sich bei der Verlangsamung der früheren --- im Raume planetaren --- Geschwindigkeit schloss und die Steine vielfach aneinander stießen. Jeder Stein für sich muss durch das entgegenstehende Hindernis der Atmosphäre entsprechend seiner Gestalt eine rotierende Bewegung annehmen, deren Axe die Richtung des Falles ist. Unter den Stücken, welche ich Herrn Negedlo verdanke, befindet sich eines von nur 2 1/8 Loth, welches dennoch als Beweis dienen kann, dass er seinen ganzen Weg vollständig unbeirrt und unabhängig durchgeführt. Es muss um die Axe _CC′_ rotiert haben, _C_ immer voran im Raume. Die Kanten von _A_ bis _B_ herum sind die schärfsten, die Linien _AA′_, _BB′_ gehen durch den Schwerpunkt der voran im Raume sich bewegen muss. Der Querschnitt senkrecht auf _CC′_ ist scharf dreiseitig. Vom Mittelpunkt _C_ ausgehend sieht man zarte Linien auf der Oberfläche gegen den Rand _AB_ auslaufend, an den Kanten bei den Punkten _A_ und _B_ zeigen sich deutlich ausgesprochene, rückwärts gestülpte Schmelzrindengrate, ähnlich wie ich sie für Stannern beschrieb,* nur weniger auffallend hier, wo die Rindensubstanz so viel weniger leichtflüssig ist. Die Rückenfläche weniger glänzend überrindet, außer stellenweise, wo man kleine Schmelzbruchstücke wahrzunehmen versucht wäre, wie dies namentlich in der zweiten der obigen Mitteilungen nachgewiesen wurde.
-
-*) Eine Leitform der Meteoriten. Sitzung am 19. April 1860. Sitzungsb. d. kais. Akad. d. Wissensch. mathem.-naturw. Kl. Bd. 40. S. 525. --- Stannern. Ein zweiter Meteorstein, durch seine Rinde genau in seiner kosmischen Bahn orientiert. Sitzung am 22. Mai 1862. Sitzungsb. Bd. 45. S. 791.
+Die Steine fielen alle einzeln herab. Es war nicht das Ganze Ein Stein, der etwa zersprang, und durch das Zerspringen Veranlassung zu der Knallerscheinung gab, sondern jeder der Steine fiel einzeln. Vor dem Eintritt in den Raum der Atmosphäre, waren sie freilich dicht auf einen Klumpen geschlossen, aber hier fanden sie Widerstand, das Kleine mehr als das Große, so wurden sie voneinander getrennt. Zuallererst blieb das Staubförmige als Nebelwolkenspur zurück. Jeder einzelne Stein von denen, welche herabfielen und aufgefunden wurden ist mit seiner Rinde rundum bekleidet, von den größten beginnend, bis zu dem oben erwähnten Exemplar von 1/8 Loth (genauer gewogen 2.245 Gr.) Gewicht --- welches von der sieben Jahre alten Maria Mohnar aus Sztricsava gefunden wurde, und das ich Herrn Negedlo verdanke. Aber sie sind sämtlich beschädigt. Es ist wohl ganz natürlich daran zu denken, dass diese Beschädigungen während des zweiten Teiles der Schallerscheinungen, nach dem ersten Schlage also, in welchem das Vakuum sich bei der Verlangsamung der früheren --- im Raume planetaren --- Geschwindigkeit schloss und die Steine vielfach aneinander stießen. Jeder Stein für sich muss durch das entgegenstehende Hindernis der Atmosphäre entsprechend seiner Gestalt eine rotierende Bewegung annehmen, deren Axe die Richtung des Falles ist. Unter den Stücken, welche ich Herrn Negedlo verdanke, befindet sich eines von nur 2 1/8 Loth, welches dennoch als Beweis dienen kann, dass er seinen ganzen Weg vollständig unbeirrt und unabhängig durchgeführt. Es muss um die Axe _CC′_ rotiert haben, _C_ immer voran im Raume. Die Kanten von _A_ bis _B_ herum sind die schärfsten, die Linien _AA′_, _BB′_ gehen durch den Schwerpunkt der voran im Raume sich bewegen muss. Der Querschnitt senkrecht auf _CC′_ ist scharf dreiseitig. Vom Mittelpunkt _C_ ausgehend sieht man zarte Linien auf der Oberfläche gegen den Rand _AB_ auslaufend, an den Kanten bei den Punkten _A_ und _B_ zeigen sich deutlich ausgesprochene, rückwärts gestülpte Schmelzrindengrate, ähnlich wie ich sie für Stannern beschrieb,[^3] nur weniger auffallend hier, wo die Rindensubstanz so viel weniger leichtflüssig ist. Die Rückenfläche weniger glänzend überrindet, außer stellenweise, wo man kleine Schmelzbruchstücke wahrzunehmen versucht wäre, wie dies namentlich in der zweiten der obigen Mitteilungen nachgewiesen wurde.
 
 [Fig. 7.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-figure-7.png)
 
@@ -583,9 +577,7 @@ Etwas weiter südlich "weidete Janko Karabuta, der wohlhabendste Bauer in Salgo,
 
 Die Bewohner hatten zwei verschiedene Punkte auf der Hügelreihe aus der Erinnerung bezeichnet, hinter welchen das Meteor verschwunden war, aber beide fehlerhaft, denn die Richtung war genau östlich durch den Fall selbst beurkundet. Man würde nach den Angaben sehr weit irre gegangen sein, hätte man sie als Wegweiser benützen wollen. Aber dieser Mangel an Orientierung in den Weltgegenden ist ja bekanntermaßen in tief kontinentalen Ländern eine sehr verbreitete Tatsache.
 
-In Bezug auf die Verschiedenheit des Eindruckes möchte ich hier bemerken, dass dies wohl gar sehr von den Individualitäten der Beobachter abhängig ist, und daher wohl nicht jeder das ganz Gleiche gesehen haben muss --- immer bleibt es Aufgabe den Eindruck unverkümmert zu verzeichnen. Die Form des brennenden Besens mit einem Stiele voran hat aber unter anderem ein auffallend ähnliches Gegenstück in der Beobachtung des Lieutenants Aylesbury in Bezug auf den Fall von Quenggouk in Pegu, dessen Abbildung ich in meinem Bericht, am 5. Dezember 1861 der hochgeehrten Klasse vorzulegen die Ehre hatte.* Nur zog dort das Meteor nahe horizontal, hier fast senkrecht nieder.
-
-*) Sitzungsb. d. mathem.-naturw. Kl. d. kais. Akad. d. Wissensch. Bd. 49., S. 637.
+In Bezug auf die Verschiedenheit des Eindruckes möchte ich hier bemerken, dass dies wohl gar sehr von den Individualitäten der Beobachter abhängig ist, und daher wohl nicht jeder das ganz Gleiche gesehen haben muss --- immer bleibt es Aufgabe den Eindruck unverkümmert zu verzeichnen. Die Form des brennenden Besens mit einem Stiele voran hat aber unter anderem ein auffallend ähnliches Gegenstück in der Beobachtung des Lieutenants Aylesbury in Bezug auf den Fall von Quenggouk in Pegu, dessen Abbildung ich in meinem Bericht, am 5. Dezember 1861 der hochgeehrten Klasse vorzulegen die Ehre hatte.[^4] Nur zog dort das Meteor nahe horizontal, hier fast senkrecht nieder.
 
 Die Leute zu Terjekfalva, südöstlich unweit Salgó sagten aus, dass "der Schlag," als das Meteor scheinbar auf die Berge traf, "so heftig war, dass ihr Dorf erbebte."
 
@@ -609,9 +601,7 @@ Ein Höhenwinkel von 40° in Eperies würde eine absolute Höhe des Punktes _V_ 
 
 Ein Höhenwinkel von 70° in Eperies würde eine absolute Höhe des Punktes _V_ von 37 Meilen, und für Gálszécs den Winkel von 74°, für Ungvár von 80° bedingen.
 
-Eine solche Höhe würde um nahe 10 deutsche Meilen die größte der Höhen für den Beginn des Leuchtendwerdens der Sternschnuppen übersteigen, 131 englische Meilen (= 27 D. M.) wie selbe von Herrn Alexander Herschel am 10. August 1863 beobachtet und berechnet worden sind. Und selbst diese Höhe hatte Alexander Herschel als wahrscheinlich überschätzt bezeichnet.*
-
-*) Quetelet. Sur les étoiles filantes du 10 Août 1863. Extrait d'une lettre de Sir John Herschel associé de l'académie à M. Ad. Quetelet. Bulletins de l'A. R. de Belgique, 2me Ser. T. 16. Nr. 9.
+Eine solche Höhe würde um nahe 10 deutsche Meilen die größte der Höhen für den Beginn des Leuchtendwerdens der Sternschnuppen übersteigen, 131 englische Meilen (= 27 D. M.) wie selbe von Herrn Alexander Herschel am 10. August 1863 beobachtet und berechnet worden sind. Und selbst diese Höhe hatte Alexander Herschel als wahrscheinlich überschätzt bezeichnet.[^5]
 
 Bei dem Umstände, dass kaum irgendetwas in der Praxis so leicht überschätzt wird, wie ein Höhenwinkel, und doch auch nicht einmal annähernde astronomischen ähnliche Schätzungen vorliegen, glaube ich mich wohl auf diese kleinste der gegebenen beschränken zu dürfen.
 
@@ -710,3 +700,13 @@ Im Ganzen aber lässt sich wohl sagen, in der Geschichte der Meteoritenfälle wi
 [Tafel 2.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-table-2.png)
 
 [Tafel 3.](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-table-3.png)
+
+[^1]: Herr Dr. Lorenz Riczko übersandte später ein Stück von 1 1/8 Pfd. als freundliches Geschenk, nebst einem Bericht über den Fall an das k. k. Hof-Mineralienkabinett in Wien. Von einem in seinem Besitze nach früheren Angaben befindlichen Steine von angeblich 27 Pfund ist hier keine Rede mehr.
+
+[^2]: Nach verschiedenen Mitteilungen hatte Herr F. Kistler damals schon 1 Stück von 17 1/2 Loth an das k. k. Hof-Mineralienkabinett gesandt. (Sitzung d. kais. A. d. W. am 12. Juli), sodann auch (14 1/2 Loth) an die k. k. geologische Reichsanstalt und an Herrn Prof. Kriesch in Ofen (15 3/4 Loth).
+
+[^3]: Eine Leitform der Meteoriten. Sitzung am 19. April 1860. Sitzungsb. d. kais. Akad. d. Wissensch. mathem.-naturw. Kl. Bd. 40. S. 525. --- Stannern. Ein zweiter Meteorstein, durch seine Rinde genau in seiner kosmischen Bahn orientiert. Sitzung am 22. Mai 1862. Sitzungsb. Bd. 45. S. 791.
+
+[^4]: Sitzungsb. d. mathem.-naturw. Kl. d. kais. Akad. d. Wissensch. Bd. 49., S. 637.
+
+[^5]: Quetelet. Sur les étoiles filantes du 10 Août 1863. Extrait d'une lettre de Sir John Herschel associé de l'académie à M. Ad. Quetelet. Bulletins de l'A. R. de Belgique, 2me Ser. T. 16. Nr. 9.
