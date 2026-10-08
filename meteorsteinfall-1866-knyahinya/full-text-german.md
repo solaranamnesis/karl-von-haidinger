@@ -693,7 +693,7 @@ Diese Angabe ist dem Bericht des Herrn J. C. v. Thóldt an die k. k. geologische
 
 Das Einfallen der Feuerkugel war übrigens von sehr vielen Personen gesehen worden, und den Beobachtern von der Westseite schien sie geradezu in den Markt Liptó Szent Miklós, den Hauptort des Komitates hineinzufallen, und zwar so sehr ähnlich einer Brandrakete, dass bei den damaligen aus andern zufälligen Ereignissen eben hochgehenden Parteierregungen, von Seite der siegreichen Partei gegen die besiegte ein Vorwurf absichtlicher Beschädigung erhoben, und Haussuchungen gegen die letztere verlangt wurden, was jedoch an der besseren Einsicht und Beurteilung des Herrn Obergespans v. Szentivanyi scheiterte.
 
-# Schluss.
+## Schluss.
 
 Es ließ sich bereits aus den allerersten Berichten über den Meteorsteinfall am 9. Juni 1866 bei Knyahinya erwarten, dass sich eine reiche Ausbeute an Kenntnis an denselben anschließen wird, an einem schönen heiteren Tage, zu sehr gelegener Tageszeit von blendenden optischen und gewaltigen akustischen Erscheinungen begleitet, der Meteorsteinschwarm höchst zahlreich und dessen einzelne Steine von den mannigfaltigsten Größen.
 
