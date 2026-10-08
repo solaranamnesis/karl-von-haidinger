@@ -7,7 +7,7 @@ Public Domain Works of Wilhelm Karl Ritter von Haidinger (1795 - 1871)
 English - Plain Text  
 English - PDF  
 [German - Plain Text](meteorsteinfall-1866-knyahinya/full-text-german.md)  
-German - PDF  
+[German - PDF](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-knyahinya-1866-german.pdf) | [Biolinum](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-knyahinya-1866-german-biolinum.pdf) | [Atkinson](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-knyahinya-1866-german-atkinson.pdf) | [Kerkis](https://cdn.solaranamnesis.com/WilhelmKarlHaidinger/knyahinya/haidinger-knyahinya-1866-german-kerkis.pdf)
 
 ## Mémoire sur les Relations qui Existent entre les Étoiles Filantes, les Bolides et les Essaims de Météorites.
 
